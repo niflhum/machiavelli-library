@@ -80,4 +80,4 @@ machiavelli-library/
 
 ## 版权 | Copyright
 
-All works by Niccolò Machiavelli (1469–1527) are in the public domain. English translations are sourced from Project Gutenberg. Chinese translations are from user-provided versions. Biographies and studies are included for research reference purposes only.
+All works by Niccolò Machiavelli (1469–1527) are in the public domain. English translations are sourced from Project Gutenberg. Chinese translations are from publicly available materials. Biographies and studies are included for research reference purposes only.

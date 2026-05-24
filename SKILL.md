@@ -6,7 +6,7 @@ description-en: A bilingual (Chinese-English) searchable library of Machiavelli'
 category: research
 tags: [machiavelli, philosophy, history, italian-renaissance, florence, political-theory]
 version: "1.0.0"
-author: built from public domain sources and user-provided texts
+author: built from public domain sources and publicly available materials
 triggers:
   prefix:
     - /machia-lib
