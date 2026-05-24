@@ -23,10 +23,10 @@ if not os.path.exists(cat_path):
 else:
     with open(cat_path) as f:
         catalog = json.load(f)
-    print(f'✅ catalog.json: {len(catalog["books"])} books registered')
+    print(f'✅ catalog.json: {len(catalog)} books registered')
 
     # 2. Check each book
-    for book in catalog['books']:
+    for book in catalog:
         path = book.get('path', '')
         size = check_file(path)
         if size is None:

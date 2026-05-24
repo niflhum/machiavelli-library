@@ -18,7 +18,7 @@ if [ $# -lt 5 ]; then
     exit 1
 fi
 
-LIBRARY_ROOT="/Users/niko/Desktop/machiavelli-library"
+LIBRARY_ROOT="$(dirname "$(cd "$(dirname "$0")" && pwd)")"
 FULL_OUT="$LIBRARY_ROOT/$OUTDIR"
 
 mkdir -p "$FULL_OUT"

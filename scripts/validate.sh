@@ -6,7 +6,7 @@ echo "📋 马基雅维利图书馆 — 完整性验证"
 echo "=================================="
 echo ""
 
-LIBRARY_ROOT="/Users/niko/Desktop/machiavelli-library"
+LIBRARY_ROOT="$(dirname "$(cd "$(dirname "$0")" && pwd)")"
 CATALOG="$LIBRARY_ROOT/catalog/catalog.json"
 
 if [ ! -f "$CATALOG" ]; then

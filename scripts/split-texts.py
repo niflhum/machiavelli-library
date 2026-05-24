@@ -6,7 +6,7 @@ Run: python3 scripts/split-texts.py
 
 import os, re, json, glob
 
-BASE = '/Users/niko/Desktop/machiavelli-library'
+BASE = os.path.dirname(os.path.dirname(os.path.abspath(__file__)))
 DOWNLOADS = '/Users/niko/Downloads/machiavellian'
 TMP = os.path.join(BASE, '_tmp')
 

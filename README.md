@@ -75,7 +75,7 @@ machiavelli-library/
 
 1. Place text file in appropriate `library/` subdirectory
 2. Add entry to `catalog/catalog.json`
-3. Run `scripts/build-index.sh` (or rebuild indexes manually)
+3. Run `python3 scripts/build-index.py` (or rebuild indexes manually)
 4. No code changes needed
 
 ## 版权 | Copyright

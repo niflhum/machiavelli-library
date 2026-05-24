@@ -1,0 +1,5 @@
+_tmp/
+*.DS_Store
+*.pyc
+__pycache__/
+machiavelli-library.backup.*/

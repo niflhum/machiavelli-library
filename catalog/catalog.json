@@ -50,6 +50,20 @@
     "notes": "李活译，戚国淦序"
   },
   {
+    "id": "art-of-war-zh",
+    "title": "兵法（用兵之道）",
+    "title_en": "The Art of War",
+    "author": "尼科洛·马基雅维利",
+    "author_en": "Niccolò Machiavelli",
+    "category": "machiavelli",
+    "path": "library/machiavelli/art-of-war/",
+    "language": "zh",
+    "volumes": 7,
+    "format": "按卷分文件",
+    "notes": "马基雅维利全集版，替代旧娄林张培均注释版",
+    "added": "2026-05-22"
+  },
+  {
     "id": "art-of-war-en",
     "title": "The Art of War",
     "title_zh": "兵法",
@@ -58,8 +72,7 @@
     "path": "library/machiavelli/art-of-war/en/",
     "language": "en",
     "format": "按卷分文件",
-    "source": "Project Gutenberg",
-    "status": "partial"
+    "source": "Project Gutenberg #5761"
   },
   {
     "id": "letters-zh",
@@ -83,7 +96,21 @@
     "path": "library/machiavelli/diplomatic/",
     "language": "zh",
     "volumes": 2,
-    "notes": "含论佛罗伦萨军事、致各国使节函件，OCR来源"
+    "notes": "马基雅维利全集版，2026-05-22 替换为高质量txt版"
+  },
+  {
+    "id": "drama-poetry-zh",
+    "title": "戏剧·诗歌·散文",
+    "title_en": "Plays, Poetry and Prose",
+    "author": "尼科洛·马基雅维利",
+    "author_en": "Niccolò Machiavelli",
+    "category": "machiavelli",
+    "path": "library/machiavelli/drama-poetry/",
+    "language": "zh",
+    "works": 9,
+    "format": "按篇目分文件",
+    "notes": "马基雅维利全集版，含《曼陀罗》《十年纪》等",
+    "added": "2026-05-22"
   },
   {
     "id": "biography-salt-seven",
@@ -129,5 +156,40 @@
     "category": "fiction",
     "path": "library/fiction/maugham/",
     "language": "zh"
+  },
+  {
+    "id": "biography-viroli-smile",
+    "title": "尼科洛的微笑：马基雅维利传",
+    "author": "毛里齐奥·维罗利 (Maurizio Viroli)",
+    "category": "biography",
+    "path": "library/biography/viroli-smile/",
+    "language": "zh",
+    "format": "全文",
+    "notes": "段保良译，持续叙事体传记未分章",
+    "added": "2026-05-22"
+  },
+  {
+    "id": "scholarship-najemy-power",
+    "title": "权力与欲望：马基雅维利与韦托里1513-1515年通信研究",
+    "author": "约翰·纳杰米 (John M. Najemy)",
+    "category": "scholarship",
+    "path": "library/scholarship/najemy-power/",
+    "language": "zh",
+    "chapters": 20,
+    "format": "按章分文件",
+    "notes": "刘学浩译，经典与解释·西方传统系列",
+    "added": "2026-05-22"
+  },
+  {
+    "id": "scholarship-strauss-thoughts",
+    "title": "Thoughts on Machiavelli",
+    "author": "Leo Strauss",
+    "category": "scholarship",
+    "path": "library/scholarship/strauss-thoughts/",
+    "language": "en",
+    "chapters": 7,
+    "format": "按章分文件",
+    "notes": "英文原版，施特劳斯对马基雅维利的经典解读",
+    "added": "2026-05-22"
   }
 ]
