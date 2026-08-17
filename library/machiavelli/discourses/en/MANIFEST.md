@@ -122,6 +122,7 @@
 - Chapter XIX: [chapter-xix.md](book3/chapter-xix.md)
 - Chapter XX: [chapter-xx.md](book3/chapter-xx.md)
 - Chapter XXI: [chapter-xxi.md](book3/chapter-xxi.md)
+- Chapter XXII: [chapter-xxii.md](book3/chapter-xxii.md)
 - Chapter XXIII: [chapter-xxiii.md](book3/chapter-xxiii.md)
 - Chapter XXIV: [chapter-xxiv.md](book3/chapter-xxiv.md)
 - Chapter XXV: [chapter-xxv.md](book3/chapter-xxv.md)
@@ -150,4 +151,3 @@
 - Chapter XLVIII: [chapter-xlviii.md](book3/chapter-xlviii.md)
 - Chapter XLIX: [chapter-xlix.md](book3/chapter-xlix.md)
 
-> 注：Book III 缺 Chapter XXII（Gutenberg 10827 原版跳号，非本库缺失）。
