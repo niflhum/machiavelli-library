@@ -1,64 +1,13 @@
-# CHAPTER V —_How an Hereditary King may come to lose his Kingdom._
+# CHAPTER V.—_Whether the Guardianship of public Freedom is safer in the hands of the Commons or of the Nobles; and whether those who seek to acquire Power or they who seek to maintain it are the greate
 
-CHAPTER V.—_How an Hereditary King may come to lose his Kingdom._
+Of the provisions made by wise founders of republics, one of the most necessary is for the creation of a guardianship of liberty; for according as this is placed in good or bad hands, the freedom of the State will be more or less lasting. And because in every republic we find the two parties of nobles and commons, the question arises, to which of these two this guardianship can most safely be entrusted. Among the Lacedæmonians of old, as now with the Venetians, it was placed in the hands of the nobles, but with the Romans it was vested in the commons. We have, therefore, to determine which of these States made the wiser choice. If we look to reasons, something is to be said on both sides of the question; though were we to look to results, we should have to pronounce in favour of the nobles, inasmuch as the liberty of Sparta and Venice has had a longer life than that of Rome.
 
+As touching reasons, it may be pleaded for the Roman method, that they are most fit to have charge of a thing, who least desire to pervert it to their own ends. And, doubtless, if we examine the aims which the nobles and the commons respectively set before them, we shall find in the former a great desire to dominate, in the latter merely a desire not to be dominated over, and hence a greater attachment to freedom, since they have less to gain than the others by destroying it. Wherefore, when the commons are put forward as the defenders of liberty, they may be expected to take better care of it, and, as they have no desire to tamper with it themselves, to be less apt to suffer others to do so.
 
-Tarquin the Proud, when he had put Servius Tullius to death, inasmuch
-as the latter left no heirs, took secure possession of the kingdom,
-having nothing to fear from any of those dangers which had stood in the
-way of his predecessors. And although the means whereby he made himself
-king were hateful and monstrous, nevertheless, had he adhered to the
-ancient ordinances of the earlier kings, he might have been endured,
-nor would he have aroused both senate and people to combine against him
-and deprive him of his government. It was not, therefore, because his
-son Sextus violated Lucretia that Tarquin was driven out, but because
-he himself had violated the laws of the kingdom, and governed as a
-tyrant, stripping the senate of all authority, and bringing everything
-under his own control. For all business which formerly had been
-transacted in public, and with the sanction of the senate, he caused to
-be transacted in his palace, on his own responsibility, and to the
-displeasure of every one else, and so very soon deprived Rome of
-whatever freedom she had enjoyed under her other kings.
+On the other hand, he who defends the method followed by the Spartans and Venetians, may urge, that by confiding this guardianship to the nobles, two desirable ends are served: first, that from being allowed to retain in their own hands a weapon which makes them the stronger party in the State, the ambition of this class is more fully satisfied; and, second, that an authority is withdrawn from the unstable multitude which as used by them is likely to lead to endless disputes and tumults, and to drive the nobles into dangerous and desperate courses. In instance whereof might be cited the case of Rome itself, wherein the tribunes of the people being vested with this authority, not content to have one consul a plebeian, insisted on having both; and afterwards laid claim to the censorship, the prætorship and all the other magistracies in the city. Nor was this enough for them, but, carried away by the same factious spirit, they began after a time to pay court to such men as they thought able to attack the nobility, and so gave occasion to the rise of Marius and the overthrow of Rome.
 
-Nor was it enough for him to have the Fathers his enemies, but he must
-needs also kindle the commons against him, wearing them out with mere
-mechanic labours, very different from the enterprises in which they had
-been employed by his predecessors; so that when Rome overflowed with
-instances of his cruelty and pride, he had already disposed the minds
-of all the citizens to rebel whenever they found the opportunity.
-Wherefore, had not occasion offered in the violence done to Lucretia,
-some other had soon been found to bring about the same result. But had
-Tarquin lived like the other kings, when Sextus his son committed that
-outrage, Brutus and Collatinus would have had recourse to him to punish
-the offender, and not to the commons of Rome. And hence let princes
-learn that from the hour they first violate those laws, customs, and
-usages under which men have lived for a great while, they begin to
-weaken the foundations of their authority. And should they, after they
-have been stripped of that authority, ever grow wise enough to see how
-easily princedoms are preserved by those who are content to follow
-prudent counsels, the sense of their loss will grieve them far more,
-and condemn them to a worse punishment than any they suffer at the
-hands of others. For it is far easier to be loved by good men than by
-bad, and to obey the laws than to seek to control them.
+Wherefore one who weighs both sides of the question well, might hesitate which party he should choose as the guardian of public liberty, being uncertain which class is more mischievous in a commonwealth, that which would acquire what it has not, or that which would keep the authority which it has already. But, on the whole, on a careful balance of arguments we may sum up thus:—Either we have to deal with a republic eager like Rome to extend its power, or with one content merely to maintain itself; in the former case it is necessary to do in all things as Rome did; in the latter, for the reasons and in the manner to be shown in the following Chapter, we may imitate Venice and Sparta.
 
-And to learn what means they must use to retain their authority, they
-have only to take example by the conduct of good princes, such as
-Timoleon of Corinth, Aratus of Sicyone, and the like, in whose lives
-they will find such security and content, both on the side of the ruler
-and the ruled, as ought to stir them with the desire to imitate them,
-which, for the reasons already given, it is easy for them to do. For
-men, when they are well governed, ask no more, nor look for further
-freedom; as was the case with the peoples governed by the two whom I
-have named, whom they constrained to continue their rulers while they
-lived, though both of them sought repeatedly to return to private life.
+But reverting to the question which class of citizens is more mischievous in a republic, those who seek to acquire or those who fear to lose what they have acquired already, I note that when Marcus Menenius and Marcus Fulvius, both of them men of plebeian birth, were made the one dictator, the other master of the knights, that they might inquire into certain plots against Rome contrived in Capua, they had at the same time authority given them by the people to investigate whether, in Rome itself, irregular and corrupt practices had been used to obtain the consulship and other honours of the city. The nobles suspecting that the powers thus conferred were to be turned against them, everywhere gave out that if honours had been sought by any by irregular and unworthy means, it was not by them, but by the plebeians, who, with neither birth nor merit to recommend them, had need to resort to corruption. And more particularly they accused the dictator himself. And so telling was the effect of these charges, that Menenius, after haranguing the people and complaining to them of the calumnies circulated against him, laid down his dictatorship, and submitted himself to whatever judgment might be passed upon him. When his cause came to be tried he was acquitted; but at the hearing it was much debated, whether he who would retain power or he who would acquire it, is the more dangerous citizen; the desires of both being likely to lead to the greatest disorders.
 
-But because, in this and the two preceding Chapters, I have noticed the
-ill-will which arose against the kings, the plots contrived by the sons
-of Brutus against their country, and those directed against the elder
-Tarquin and Servius Tullius, it seems to me not out of place to
-discourse of these matters more at length in the following Chapter, as
-deserving the attention both of princes and private citizens.
-
-
-
-
+Nevertheless, I believe that, as a rule, disorders are more commonly occasioned by those seeking to preserve power, because in them the fear of loss breeds the same passions as are felt by those seeking to acquire; since men never think they hold what they have securely, unless when they are gaining something new from others. It is also to be said that their position enables them to operate changes with less effort and greater efficacy. Further, it may be added, that their corrupt and insolent behaviour inflames the minds of those who have nothing, with the desire to have; either for the sake of punishing their adversaries by despoiling them, or to obtain for themselves a share of those riches and honours which they see the others abuse.

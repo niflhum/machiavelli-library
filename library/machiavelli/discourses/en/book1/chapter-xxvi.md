@@ -1,47 +1,5 @@
-# CHAPTER XXVI —_How Women are a cause of the ruin of States._
+# CHAPTER XXVI.—_A new Prince in a City or Province of which he has taken Possession, ought to make Everything new._ Whosoever becomes prince of a city or State, more especially if his
 
-CHAPTER XXVI.—_How Women are a cause of the ruin of States._
+Whosoever becomes prince of a city or State, more especially if his position be so insecure that he cannot resort to constitutional government either in the form of a republic or a monarchy, will find that the best way to preserve his princedom is to renew the whole institutions of that State; that is to say, to create new magistracies with new names, confer new powers, and employ new men, and like David when he became king, exalt the humble and depress the great, “_filling the hungry with good things, and sending the rich empty away_.” Moreover, he must pull down existing towns and rebuild them, removing their inhabitants from one place to another; and, in short, leave nothing in the country as he found it; so that there shall be neither rank, nor condition, nor honour, nor wealth which its possessor can refer to any but to him. And he must take example from Philip of Macedon, the father of Alexander, who by means such as these, from being a petty prince became monarch of all Greece; and of whom it was written that he shifted men from province to province as a shepherd moves his flocks from one pasture to another.
 
-
-A feud broke out in Ardea touching the marriage of an heiress, whose
-hand was sought at the same time by two suitors, the one of plebeian,
-the other of noble birth. For her father being dead, her guardian
-wished her to wed the plebeian, her mother the noble. And so hot grew
-the dispute that resort was had to arms, the whole nobility siding with
-their fellow-noble, and all the plebeians with the plebeian. The latter
-faction being worsted, left the town, and sent to the Volscians for
-help; whereupon, the nobles sought help from Rome. The Volscians were
-first in the field, and on their arrival encamped round Ardea. The
-Romans, coming up later, shut in the Volscians between themselves and
-the town, and, reducing them by famine, forced them to surrender at
-discretion. They then entered Ardea, and putting all the ringleaders in
-this dispute to the sword, composed the disorders of the city.
-
-In connection with this affair there are several points to be noted.
-And in the first place we see how women have been the occasion of many
-divisions and calamities in States, and have wrought great harm to
-rulers; as when, according to our historian, the violence done to
-Lucretia drove the Tarquins from their kingdom, and that done to
-Virginia broke the power of the decemvirs. And among the chief causes
-which Aristotle assigns for the downfall of tyrants are the wrongs done
-by them to their subjects in respect of their women, whether by
-adultery, rape, or other like injury to their honour, as has been
-sufficiently noticed in the Chapter wherein we treated “_of
-Conspiracies_”
-
-I say, then, that neither absolute princes nor the rulers of free
-States should underrate the importance of matter, but take heed to the
-disorders which it may breed and provide against them while remedies
-can still be used without discredit to themselves or to their
-governments And this should have been done by the rulers of Ardea who
-by suffering the rivalry between their citizens to come to a head,
-promoted their divisions, and when they sought to reunite them had to
-summon foreign help, than which nothing sooner leads to servitude.
-
-But now let us turn to another subject which merits attention, namely,
-the means whereby divided cities may be reunited; and of this I propose
-to speak in the following Chapter.
-
-
-
-
+These indeed are most cruel expedients, contrary not merely to every Christian, but to every civilized rule of conduct, and such as every man should shun, choosing rather to lead a private life than to be a king on terms so hurtful to mankind. But he who will not keep to the fair path of virtue, must to maintain himself enter this path of evil. Men, however, not knowing how to be wholly good or wholly bad, choose for themselves certain middle ways, which of all others are the most pernicious, as shall be shown by an instance in the following Chapter.

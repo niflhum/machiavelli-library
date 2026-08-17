@@ -1,111 +1,13 @@
-# CHAPTER XXXVII —_Whether a general engagement should be preceded by
+# CHAPTER XXXVII.—_Of the Mischief bred in Rome by the Agrarian Law: and how it is a great source of disorder in a Commonwealth to pass a Law opposed to ancient Usage and with stringent retrospective Ef
 
-CHAPTER XXXVII.—_Whether a general engagement should be preceded by
-skirmishes; and how, avoiding these, we may get knowledge of a new
-Enemy._
+It has been said by ancient writers that to be pinched by adversity or pampered by prosperity is the common lot of men, and that in whichever way they are acted upon the result is the same. For when no longer urged to war on one another by necessity, they are urged by ambition, which has such dominion in their hearts that it never leaves them to whatsoever heights they climb. For nature has so ordered it that while they desire everything, it is impossible for them to have everything, and thus their desires being always in excess of their capacity to gratify them, they remain constantly dissatisfied and discontented. And hence the vicissitudes in human affairs. For some seeking to enlarge their possessions, and some to keep what they have got, wars and enmities ensue, from which result the ruin of one country and the growth of another.
 
+I am led to these reflections from observing that the commons of Rome were not content to secure themselves against the nobles by the creation of tribunes, a measure to which they were driven by necessity, but after effecting this, forthwith entered upon an ambitious contest with the nobles, seeking to share with them what all men most esteem, namely, their honours and their wealth. Hence was bred that disorder from which sprang the feuds relating to the Agrarian Laws, and which led in the end to the downfall of the Roman republic. And although it should be the object of every well-governed commonwealth to make the State rich and keep individual citizens poor it must be allowed that in the matter of this law the city of Rome was to blame; whether for having passed it at first in such a shape as to require it to be continually recast; or for having postponed it so long that its retrospective effect was the occasion of tumult; or else, because, although rightly framed at first, it had come in its operation to be perverted. But in whatever way it happened, so it was, that this law was never spoken of in Rome without the whole city being convulsed.
 
-Besides all the other difficulties which hinder men from bringing
-anything to its utmost perfection, it appears, as I have already
-observed, that in close vicinity to every good is found also an evil,
-so apt to grow up along with it that it is hardly possible to have the
-one without accepting the other. This we see in all human affairs, and
-the result is, that unless fortune aid us to overcome this natural and
-common disadvantage, we never arrive at any excellence. I am reminded
-of this by the combat between Titus Manlius and the Gaul, concerning
-which Livius writes that it “_determined the issue of the entire war;
-since the Gauls, abandoning their camp, hastily withdrew to the country
-about Tivoli, whence they presently passed into Campania._”
+The law itself embraced two principal provisions. By one it was enacted that no citizen should possess more than a fixed number of acres of land; by the other that all lands taken from the enemy should be distributed among the whole people. A twofold blow was thus aimed at the nobles; since all who possessed more land than the law allowed, as most of the nobles did, fell to be deprived of it; while by dividing the lands of the enemy among the whole people, the road to wealth was closed. These two grounds of offence being given to a powerful class, to whom it appeared that by resisting the law they did a service to the State, the whole city, as I have said, was thrown into an uproar on the mere mention of its name. The nobles indeed sought to temporize, and to prevail by patience and address; sometimes calling out the army, sometimes opposing another tribune to the one who was promoting the law, and sometimes coming to a compromise by sending a colony into the lands which were to be divided; as was done in the case of the territory of Antium, whither, on a dispute concerning the law having arisen, settlers were sent from Rome, and the land made over to them. In speaking of which colony Titus Livius makes the notable remark, that hardly any one in Rome could be got to take part in it, so much readier were the commons to indulge in covetous schemes at home, than to realize them by leaving it.
 
-It may be said, therefore, on the one hand, that a prudent captain
-ought absolutely to refrain from all those operations which, while of
-trifling moment in themselves, may possibly produce an ill effect on
-his army. Now, to engage in a combat wherein you risk your whole
-fortunes without putting forth your entire strength, is, as I observed
-before, when condemning the defence of a country by guarding its
-defiles, an utterly foolhardy course. On the other hand, it is to be
-said that a prudent captain, when he has to meet a new and redoubtable
-adversary, ought, before coming to a general engagement, to accustom
-his men by skirmishes and passages of arms, to the quality of their
-enemy; that they may learn to know him, and how to deal with him, and
-so free themselves from the feeling of dread which his name and fame
-inspire.
+The ill humour engendered by this contest continued to prevail until the Romans began to carry their arms into the remoter parts of Italy and to countries beyond its shores; after which it seemed for a time to slumber—and this, because the lands held by the enemies of Rome, out of sight of her citizens and too remote to be conveniently cultivated, came to be less desired. Whereupon the Romans grew less eager to punish their enemies by dividing their lands, and were content, when they deprived any city of its territory, to send colonists to occupy it. For causes such as these, the measure remained in abeyance down to the time of the Gracchi; but being by them revived, finally overthrew the liberty of Rome. For as it found the power of its adversaries doubled, such a flame of hatred was kindled between commons and senate, that, regardless of all civil restraints, they resorted to arms and bloodshed. And as the public magistrates were powerless to provide a remedy, each of the two factions having no longer any hopes from them, resolved to do what it could for itself, and to set up a chief for its own protection. On reaching this stage of tumult and disorder, the commons lent their influence to Marius, making him four times consul; whose authority, lasting thus long, and with very brief intervals, became so firmly rooted that he was able to make himself consul other three times. Against this scourge, the nobles, lacking other defence, set themselves to favour Sylla, and placing him at the head of their faction, entered on the civil wars; wherein, after much blood had been spilt, and after many changes of fortune, they got the better of their adversaries. But afterwards, in the time of Cæsar and Pompey, the distemper broke out afresh; for Cæsar heading the Marian party, and Pompey, that of Sylla, and war ensuing, the victory remained with Cæsar, who was the first tyrant in Rome; after whose time that city was never again free. Such, therefore, was the beginning and such the end of the Agrarian Law.
 
-This for a captain is a matter of the very greatest importance, and one
-which it might be almost fatal for him to neglect, since to risk a
-pitched battle without first giving your soldiers such opportunities to
-know their enemy and shake off their fear of him, is to rush on certain
-destruction. When Valerius Corvinus was sent by the Romans with their
-armies against the Samnites, these being new adversaries with whom up
-to that time they had not measured their strength, Titus Livius tells
-us that before giving battle he made his men make trial of the enemy in
-several unimportant skirmishes, “_lest they should be dismayed by a new
-foe and a new method of warfare._” Nevertheless, there is very great
-danger that, if your soldiers get the worst in these encounters, their
-alarm and self-distrust may be increased, and a result follow contrary
-to that intended, namely, that you dispirit where you meant to
-reassure.
+But since it has elsewhere been said that the struggle between the commons and senate of Rome preserved her liberties, as giving rise to laws favourable to freedom, it might seem that the consequences of the Agrarian Law are opposed to that view. I am not, however, led to alter my opinion on this account; for I maintain that the ambition of the great is so pernicious that unless controlled and counteracted in a variety of ways, it will always reduce a city to speedy ruin. So that if the controversy over the Agrarian Laws took three hundred years to bring Rome to slavery, she would in all likelihood have been brought to slavery in a far shorter time, had not the commons, by means of this law, and by other demands, constantly restrained the ambition of the nobles.
 
-This, therefore, is one of those cases in which the evil lies so nigh
-the good, and both are so mixed up together that you may readily lay
-hold of the one when you think to grasp the other. And with regard to
-this I say, that a good captain should do what he can that nothing
-happen which might discourage his men, nor is there anything so likely
-to discourage them as to begin with a defeat. For which reason
-skirmishes are, as a rule, to be avoided, and only to be allowed where
-you fight to great advantage and with a certainty of victory. In like
-manner, no attempt should be made to defend the passes leading into
-your country unless your whole army can co-operate; nor are any towns
-to be defended save those whose loss necessarily involves your ruin.
-And as to those towns which you do defend, you must so arrange, both in
-respect of the garrison within and the army without, that in the event
-of a siege your whole forces can be employed. All other towns you must
-leave undefended. For, provided your army be kept together, you do not,
-in losing what you voluntarily abandon, forfeit your military
-reputation, or sacrifice your hopes of final success. But when you lose
-what it was your purpose, and what all know it was your purpose to
-hold, you suffer a real loss and injury, and, like the Gauls on the
-defeat of their champion, you are ruined by a mishap of no moment in
-itself.
-
-Philip of Macedon, the father of Perseus, a great soldier in his day,
-and of a great name, on being invaded by the Romans, laid waste and
-relinquished much of his territory which he thought he could not
-defend; rightly judging it more hurtful to his reputation to lose
-territory after an attempt to defend it, than to abandon it to the
-enemy as something he cared little to retain. So, likewise, after the
-battle of Cannæ, when their affairs were at their worst, the Romans
-refused aid to many subject and protected States, charging them to
-defend themselves as best they could. And this is a better course than
-to undertake to defend and then to fail; for by refusing to defend, you
-lose only your friend; whereas in failing, you not only lose your
-friend, but weaken yourself.
-
-But to return to the matter in hand, I affirm, that even when a captain
-is constrained by inexperience of his enemy to make trial of him by
-means of skirmishes, he ought first to see that he has so much the
-advantage that he runs no risk of defeat; or else, and this is his
-better course, he must do as Marius did when sent against the
-Cimbrians, a very courageous people who were laying Italy waste, and by
-their fierceness and numbers, and from the fact of their having already
-routed a Roman army, spreading terror wherever they came. For before
-fighting a decisive battle, Marius judged it necessary to do something
-to lessen the dread in which these enemies were held by his army; and
-being a prudent commander, he, on several occasions, posted his men at
-points where the Cimbrians must pass, that seeing and growing familiar
-with their appearance, while themselves in safety and within the
-shelter of their intrenched camp, and finding them to be a mere
-disorderly rabble, encumbered with baggage, and either without weapons,
-or with none that were formidable, they might at last assume courage
-and grow eager to engage them in battle. The part thus prudently taken
-by Marius, should be carefully imitated by others who would escape the
-dangers above spoken of and not have to betake themselves like the
-Gauls to a disgraceful flight, on sustaining some trifling defeat.
-
-But since in this Discourse I have referred by name to Valerius
-Corvinus, in my next Chapter I shall cite his words to show what manner
-of man a captain ought to be.
-
-
-
-
+We may also learn from this contest how much more men value wealth than honours; for in the matter of honours, the Roman nobles always gave way to the commons without any extraordinary resistance; but when it came to be a question of property, so stubborn were they in its defence, that the commons to effect their ends had to resort to those irregular methods which have been described above. Of which irregularities the prime movers were the Gracchi, whose motives are more to be commended than their measures; since to pass a law with stringent retrospective effect, in order to remove an abuse of long standing in a republic, is an unwise step, and one which, as I have already shown at length, can have no other result than to accelerate the mischief to which the abuse leads; whereas, if you temporize, either the abuse develops more slowly, or else, in course of time, and before it comes to a head, dies out of itself.

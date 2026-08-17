@@ -1,86 +1,9 @@
-# CHAPTER XXXIII —_That to insure victory in battle you must inspire your
+# CHAPTER XXXIII.—_When a Mischief has grown up in, or against a State, it is safer to temporize with than to meet it with Violence_. As Rome grew in fame, power, and dominion, her neighbours, who at fi
 
-CHAPTER XXXIII.—_That to insure victory in battle you must inspire your
-Men with confidence in one another and in you._
+As Rome grew in fame, power, and dominion, her neighbours, who at first had taken no heed to the injury which this new republic might do them, began too late to see their mistake, and desiring to remedy what should have been remedied before, combined against her to the number of forty nations. Whereupon the Romans, resorting to a method usual with them in seasons of peril, appointed a dictator; that is, gave power to one man to decide without advice, and carry out his resolves without appeal. Which expedient, as it then enabled them to overcome the dangers by which they were threatened, so always afterwards proved most serviceable, when, at any time during the growth of their power, difficulties arose to embarrass their republic.
 
+In connection with this league against Rome we have first to note, that when a mischief which springs up either in or against a republic, and whether occasioned by internal or external causes, has grown to such proportions that it begins to fill the whole community with alarm, it is a far safer course to temporize with it than to attempt to quell it by violence. For commonly those who make this attempt only add fuel to the flame, and hasten the impending ruin. Such disorders arise in a republic more often from internal causes than external, either through some citizen being suffered to acquire undue influence, or from the corruption of some institution of that republic, which had once been the life and sinew of its freedom; and from this corruption being allowed to gain such head that the attempt to check it is more dangerous than to let it be. And it is all the harder to recognize these disorders in their beginning, because it seems natural to men to look with favour on the beginnings of things. Favour of this sort, more than by anything else, is attracted by those actions which seem to have in them a quality of greatness, or which are performed by the young. For when in a republic some young man is seen to come forward endowed with rare excellence, the eyes of all the citizens are at once turned upon him, and all, without distinction, concur to do him honour; so that if he have one spark of ambition, the advantages which he has from nature, together with those he takes from this favourable disposition of men’s minds, raise him to such a pitch of power, that when the citizens at last see their mistake it is almost impossible for them to correct it; and when they do what they can to oppose his influence the only result is to extend it. Of this I might cite numerous examples, but shall content myself with one relating to our own city.
 
-To insure an army being victorious in battle you must inspire it with
-the conviction that it is certain to prevail. The causes which give it
-this confidence are its being well armed and disciplined, and the
-soldiers knowing one another. These conditions are only to be found
-united in soldiers born and bred in the same country.
+Cosimo de’ Medici, to whom the house of the Medici in Florence owes the origin of its fortunes, acquired so great a name from the favour wherewith his own prudence and the blindness of others invested him, that coming to be held in awe by the government, his fellow-citizens deemed it dangerous to offend him, but still more dangerous to let him alone. Nicolò da Uzzano, his cotemporary, who was accounted well versed in all civil affairs, but who had made a first mistake in not discerning the dangers which might grow from the rising influence of Cosimo, would never while he lived, permit a second mistake to be made in attempting to crush him; judging that such an attempt would be the ruin of the State, as in truth it proved after his death. For some who survived him, disregarding his counsels, combined against Cosimo and banished him from Florence. And so it came about that the partisans of Cosimo, angry at the wrong done him, soon afterwards recalled him and made him prince of the republic, a dignity he never would have reached but for this open opposition. The very same thing happened in Rome in the case of Cæsar. For his services having gained him the good-will of Pompey and other citizens, their favour was presently turned to fear, as Cicero testifies where he says that “it was late that Pompey began to fear Cæsar.” This fear led men to think of remedies, and the remedies to which they resorted accelerated the destruction of the republic.
 
-It is likewise essential that the army should think so well of its
-captain as to trust implicitly to his prudence; which it will always do
-if it see him careful of its welfare, attentive to discipline, brave in
-battle, and otherwise supporting well and honourably the dignity of his
-position. These conditions he fulfils when, while punishing faults, he
-does not needlessly harass his men, keeps his word with them, shows
-them that the path to victory is easy, and conceals from them, or makes
-light of things which seen from a distance might appear to threaten
-danger. The observance of these precautions will give an army great
-confidence, and such confidence leads to victory.
-
-This confidence the Romans were wont to inspire in the minds of their
-soldiers by the aid of religion; and accordingly their consuls were
-appointed, their armies were enrolled, their soldiers marched forth,
-and their battles were begun, only when the auguries and auspices were
-favourable; and without attending to all these observances no prudent
-captain would ever engage in combat; knowing that unless his soldiers
-were first assured that the gods were on their side, he might readily
-suffer defeat. But if any consul or other leader ever joined battle
-contrary to the auspices, the Romans would punish him, as they did
-Claudius Pulcher.
-
-The truth of what I affirm is plainly seen from the whole course of the
-Roman history, but is more particularly established by the words which
-Livius puts into the mouth of Appius Claudius, who, when complaining to
-the people of the insolence of the tribunes, and taxing them with
-having caused the corruption of the auspices and other rites of
-religion, is made to say, “_And now they would strip even religion of
-its authority. For what matters it, they will tell you, that the fowls
-refuse to peck, or come slowly from the coop, or that a cock has
-crowed? These are small matters doubtless; but it was by not contemning
-such small matters as these, that our forefathers built up this great
-republic._” And, indeed, in these small matters lies a power which
-keeps men united and of good courage, which is of itself the chief
-condition of success.
-
-But the observances of religion must be accompanied by valour, for
-otherwise they can nothing avail. The men of Praneste, leading forth
-their army against the Romans, took up their position near the river
-Allia, on the very spot where the Romans had been routed by the Gauls,
-selecting this ground that it might inspire their own side with
-confidence, and dishearten their enemies with the unhappy memories
-which it recalled But although, for the reasons already noted, this was
-a course which promised success, the result nevertheless showed that
-true valour is not to be daunted by trifling disadvantages. And this
-the historian well expresses by the words he puts in the mouth of the
-dictator as spoken to his master of the knights “_See how these
-fellows, in encamping on the banks of the Allia, have chosen their
-ground in reliance upon fortune. Do you, therefore, relying on
-discipline and valour, fall upon then centre._” For true valour, tight
-discipline, and the feeling of security gained by repeated victories,
-are not to be counteracted by things of no real moment, dismayed by
-empty terrors, or quelled by a solitary mishap. As was well seen when
-the two Manlii, being consuls in command against the Volscians, rashly
-allowed a part of their army to go out foraging, and both those who
-went out and those who stayed behind found themselves attacked at the
-same moment For from this danger they were saved by the courage of the
-soldiers, and not by the foresight of the consuls. With regard to which
-occurrence Titus Livius observes, “_Even without a leader the steadfast
-valour of the soldiers was maintained._”
-
-Here I must not omit to notice the device practised by Fabius to give
-his army confidence, when he led it for the first time into Etruria.
-For judging such encouragement to be especially needed by his men,
-since they were entering an unknown country to encounter a new foe, he
-addressed them before they joined battle, and, after reciting many
-reasons for expecting a victory, told them, that “_he could have
-mentioned other favourable circumstances making victory certain, had it
-not been dangerous to disclose them._” And as this device was
-dexterously used it merits imitation.
-
-
-
-
+I say, then, that since it is difficult to recognize these disorders in their beginning, because of the false impressions which things produce at the first, it is a wiser course when they become known, to temporize with them than to oppose them; for when you temporize, either they die out of themselves, or at any rate the injury they do is deferred. And the prince who would suppress such disorders or oppose himself to their force and onset, must always be on his guard, lest he help where he would hinder, retard when he would advance, and drown the plant he thinks to water. He must therefore study well the symptoms of the disease; and, if he believe himself equal to the cure, grapple with it fearlessly; if not, he must let it be, and not attempt to treat it in any way. For, otherwise, it will fare with him as it fared with those neighbours of Rome, for whom it would have been safer, after that city had grown to be so great, to have sought to soothe and restrain her by peaceful arts, than to provoke her by open war to contrive new means of attack and new methods of defence. For this league had no other effect than to make the Romans more united and resolute than before, and to bethink themselves of new expedients whereby their power was still more rapidly advanced; among which was the creation of a dictator; for this innovation not only enabled them to surmount the dangers which then threatened them, but was afterwards the means of escaping infinite calamities into which, without it, the republic must have fallen.

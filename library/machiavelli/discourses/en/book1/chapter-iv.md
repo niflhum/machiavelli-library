@@ -1,41 +1,7 @@
-# CHAPTER IV —_That an Usurper is never safe in his Princedom while those
+# CHAPTER IV.—That the Dissensions between the Senate and Commons of Rome, made Rome free and powerful. Touching those tumults which prevailed in Rome from the extinction of
 
-CHAPTER IV.—_That an Usurper is never safe in his Princedom while those
-live whom he has deprived of it._
+Touching those tumults which prevailed in Rome from the extinction of the Tarquins to the creation of the tribunes the discussion of which I have no wish to avoid, and as to certain other matters of a like nature, I desire to say something in opposition to the opinion of many who assert that Rome was a turbulent city, and had fallen into utter disorder, that had not her good fortune and military prowess made amends for other defects, she would have been inferior to every other republic.
 
+I cannot indeed deny that the good fortune and the armies of Rome were the causes of her empire; yet it certainly seems to me that those holding this opinion fail to perceive, that in a State where there are good soldiers there must be good order, and, generally speaking, good fortune. And looking to the other circumstances of this city, I affirm that those who condemn these dissensions between the nobles and the commons, condemn what was the prime cause of Rome becoming free; and give more heed to the tumult and uproar wherewith these dissensions were attended, than to the good results which followed from them; not reflecting that while in every republic there are two conflicting factions, that of the people and that of the nobles, it is in this conflict that all laws favourable to freedom have their origin, as may readily be seen to have been the case in Rome. For from the time of the Tarquins to that of the Gracchi, a period of over three hundred years, the tumults in Rome seldom gave occasion to punishment by exile, and very seldom to bloodshed. So that we cannot truly declare those tumults to have been disastrous, or that republic to have been disorderly, which during all that time, on account of her internal broils, banished no more than eight or ten of her citizens, put very few to death, and rarely inflicted money penalties. Nor can we reasonably pronounce that city ill-governed wherein we find so many instances of virtue; for virtuous actions have their origin in right training, right training in wise laws, and wise laws in these very tumults which many would thoughtlessly condemn. For he who looks well to the results of these tumults will find that they did not lead to banishments, nor to violence hurtful to the common good, but to laws and ordinances beneficial to the public liberty. And should any object that the behaviour of the Romans was extravagant and outrageous; that for the assembled people to be heard shouting against the senate, the senate against the people; for the whole commons to be seen rushing wildly through the streets, closing their shops, and quitting the town, were things which might well affright him even who only reads of them; it may be answered, that the inhabitants of all cities, more especially of cities which seek to make use of the people in matters of importance, have their own ways of giving expression to their wishes; among which the city of Rome had the custom, that when its people sought to have a law passed they followed one or another of those courses mentioned above, or else refused to be enrolled as soldiers when, to pacify them, something of their demands had to be conceded. But the demands of a free people are hurtful to freedom, since they originate either in being oppressed, or in the fear that they are about to be so. When this fear is groundless, it finds its remedy in public meetings, wherein some worthy person may come forward and show the people by argument that they are deceiving themselves. For though they be ignorant, the people are not therefore, as Cicero says, incapable of being taught the truth, but are readily convinced when it is told them by one in whose honesty they can trust.
 
-From what befell the elder Tarquin at the hands of the sons of Ancus,
-and Servius Tullius at the hands of Tarquin the Proud, we see what an
-arduous and perilous course it is to strip a king of his kingdom and
-yet suffer him to live on, hoping to conciliate him by benefits. We
-see, too, how the elder Tarquin was ruined by his belief that he held
-the kingdom by a just title, since it had been given him by the people
-and confirmed to him by the senate, never suspecting that the sons of
-Ancus would be so stirred by resentment that it would be impossible to
-content them with what contented all the rest of Rome. Servius Tullius
-again, was ruined through believing that he could conciliate the sons
-of Ancus by loading them with favours.
-
-By the fate of the first of these kings every prince may be warned that
-he can never live securely in his princedom so long as those from whom
-he has taken it survive; while the fate of the second should remind all
-rulers that old injuries are not to be healed by subsequent benefits,
-and least of all when the new benefit is less in degree than the injury
-suffered. And, truly, Servius was wanting in wisdom when he imagined
-that the sons of Tarquin would contentedly resign themselves to be the
-sons-in-law of one whom they thought should be their subject. For the
-desire to reign is so prevailing a passion, that it penetrates the
-minds not only of those who are rightful heirs, but also of those who
-are not; as happened with the wife of the younger Tarquin, who was
-daughter to Servius, but who, possessed by this madness, and setting at
-naught all filial duty, incited her husband to take her father’s
-kingdom, and with it his life; so much nobler did she esteem it to be a
-queen than the daughter of a king. But while the elder Tarquin and
-Servius Tullius lost the kingdom from not knowing how to secure
-themselves against those whom they had deprived of it, the younger
-Tarquin lost it from not observing the ordinances of the old kings, as
-shall be shown in the following Chapter.
-
-
-
-
+We should, therefore, be careful how we censure the government of Rome, and should reflect that all the great results effected by that republic, could not have come about without good cause. And if the popular tumults led the creation of the tribunes, they merit all praise; since these magistrates not only gave its due influence to the popular voice in the government, but also acted as the guardians of Roman freedom, as shall be clearly shown in the following Chapter.

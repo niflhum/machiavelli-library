@@ -1,53 +1,13 @@
-# CHAPTER XXXVIII —_Of the Qualities of a Captain in whom his Soldiers
+# CHAPTER XXXVIII.—_That weak Republics are irresolute and undecided; and that the course they may take depends more on Necessity than Choice._ A terrible pestilence breaking out in Rome seemed to the E
 
-CHAPTER XXXVIII.—_Of the Qualities of a Captain in whom his Soldiers
-can confide._
+A terrible pestilence breaking out in Rome seemed to the Equians and Volscians to offer a fit opportunity for crushing her. The two nations, therefore, assembling a great army, attacked the Latins and Hernicians and laid waste their country. Whereupon the Latins and Hernicians were forced to make their case known to the Romans, and to ask to be defended by them. The Romans, who were sorely afflicted by the pestilence, answered that they must look to their own defence, and with their own forces, since Rome was in no position to succour them.
 
+Here we recognize the prudence and magnanimity of the Roman senate, and how at all times, and in all changes of fortune, they assumed the responsibility of determining the course their country should take; and were not ashamed, when necessary, to decide on a course contrary to that which was usual with them, or which they had decided to follow on some other occasion. I say this because on other occasions this same senate had forbidden these nations to defend themselves; and a less prudent assembly might have thought it lowered their credit to withdraw that prohibition. But the Roman senate always took a sound view of things, and always accepted the least hurtful course as the best. So that, although it was distasteful to them not to be able to defend their subjects, and equally distasteful—both for the reasons given, and for others which may be understood—that their subjects should take up arms in their absence, nevertheless knowing that these must have recourse to arms in any case, since the enemy was upon them, they took an honourable course in deciding that what had to be done should be done with their leave, lest men driven to disobey by necessity should come afterwards to disobey from choice. And although this may seem the course which every republic ought reasonably to follow, nevertheless weak and badly-advised republics cannot make up their minds to follow it, not knowing how to do themselves honour in like extremities.
 
-Valerius Corvinus, as I have said already, was sent in command of an
-army against the Samnites, who were then new enemies to Rome.
-Wherefore, to reassure his soldiers and familiarize them with their
-adversaries, he made them engage with them in various unimportant
-passages of arms. But not thinking this enough, he resolved before
-delivering battle to address his men, and by reminding them of their
-valour and his own, to make it plain how little they should esteem such
-enemies. And from the words which Titus Livius puts in his mouth we may
-gather what manner of man the captain ought to be in whom an army will
-put its trust. For he makes him say:—“_Bear ye also this in mind under
-whose conduct and auspices you are about to fight, and whether he whom
-you are to obey be great only in exhorting, bold only in words, and all
-unpractised in arms; or whether he be one who himself knows how to use
-his spear, to march before the eagles, and play his part in the
-thickest of the fight. Soldiers! I would have you follow my deeds and
-not my words, and look to me for example rather than for commands; for
-with this right hand I have won for myself three consulships, and an
-unsurpassed renown._” Which words rightly understood give every one to
-know what he must do to merit a captain’s rank. And if any man obtain
-it by other means, he will soon discover that advancement due to chance
-or intrigue rather takes away than brings reputation, since it is men
-who give lustre to titles and not titles to men.
+After Duke Valentino had taken Faenza and forced Bologna to yield to his terms, desiring to return to Rome through Tuscany, he sent one of his people to Florence to ask leave for himself and his army to pass. A council was held in Florence to consider how this request should be dealt with, but no one was favourable to the leave asked for being granted. Wherein the Roman method was not followed. For as the Duke had a very strong force with him, while the Florentines were so bare of troops that they could not have prevented his passage, it would have been far more for their credit that he should seem to pass with their consent, than that he should pass in spite of them; because, while discredit had to be incurred either way, they would have incurred less by acceding to his demand.
 
-From what has been said it will likewise be understood that if great
-captains when matched against an unfamiliar foe have had to resort to
-unusual methods for reassuring the minds even of veteran soldiers, much
-more will it be necessary for them to use all their address when in
-command of a raw and untried army which has never before looked an
-enemy in the face. For if an unfamiliar adversary inspire terror even
-in a veteran army, how much greater must be the terror which any army
-will inspire in the minds of untrained men. And yet we often find all
-these difficulties overcome by the supreme prudence of a great captain
-like the Roman Gracchus or the Theban Epaminondas, of whom I have
-before spoken, who with untried troops defeated the most practised
-veterans. And the method they are said to have followed was to train
-their men for some months in mimic warfare, so as to accustom them to
-discipline and obedience, after which they employed them with complete
-confidence on actual service.
+But of all courses the worst for a weak State is to be irresolute; for then whatever it does will seem to be done under compulsion, so that if by chance it should do anything well, this will be set down to necessity and not to prudence. Of this I shall cite two other instances happening in our own times, and in our own country. In the year 1500, King Louis of France, after recovering Milan, being desirous to restore Pisa to the Florentines, so as to obtain payment from them of the fifty thousand ducats which they had promised him on the restitution being completed, sent troops to Pisa under M. Beaumont, in whom, though a Frenchman, the Florentines put much trust. Beaumont accordingly took up his position with his forces between Cascina and Pisa, to be in readiness to attack the town. After he had been there for some days making arrangements for the assault, envoys came to him from Pisa offering to surrender their city to the French if a promise were given in the king’s name, not to hand it over to the Florentines until four months had run. This condition was absolutely rejected by the Florentines, and the siege being proceeded with, they were forced to retire with disgrace. Now the proposal of the Pisans was rejected by the Florentines for no other reason than that they distrusted the good faith of the King, into whose hands their weakness obliged them to commit themselves, and did not reflect how much more it was for their interest that, by obtaining entrance into Pisa, he should have it in his power to restore the town to them, or, failing to restore it, should at once disclose his designs, than that remaining outside he should put them off with promises for which they had to pay. It would therefore have been a far better course for the Florentines to have agreed to Beaumont taking possession on whatever terms.
 
-No man, therefore, of warlike genius, need despair of creating a good
-army if only he have the men; for the prince who has many subjects and
-yet lacks soldiers, has only to thank his own inertness and want of
-foresight, and must not complain of the cowardice of his people.
+This was seen afterwards by experience in the year 1502, when, on the revolt of Arezzo, M. Imbalt was sent by the King of France with French troops to assist the Florentines. For when he got near Arezzo, and began to negotiate with the Aretines, who, like the Pisans, were willing to surrender their town on terms, the acceptance of these terms was strongly disapproved in Florence; which Imbalt learning, and thinking that the Florentines were acting with little sense, he took the entire settlement of conditions into his own hands, and, without consulting the Florentine commissioners, concluded an arrangement to his own satisfaction, in execution of which he entered Arezzo with his army. And he let the Florentines know that he thought them fools and ignorant of the ways of the world; since if they desired to have Arezzo, they could signify their wishes to the King, who would be much better able to give it them when he had his soldiers inside, than when he had them outside the town. Nevertheless, in Florence they never ceased to blame and abuse M. Imbalt, until at last they came to see that if Beaumont had acted in the same way, they would have got possession Of Pisa as well as of Arezzo.
 
-
-
-
+Applying what has been said to the matter in hand, we find that irresolute republics, unless upon compulsion, never follow wise courses; for wherever there is room for doubt, their weakness will not suffer them to come to any resolve; so that unless their doubts be overcome by some superior force which impels them forward, they remain always in suspense.

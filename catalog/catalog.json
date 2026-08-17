@@ -38,6 +38,19 @@
     "notes": "冯克利译，含哈维·曼斯菲尔德导言"
   },
   {
+    "id": "discourses-en",
+    "title": "论李维（英文）",
+    "title_en": "Discourses on Livy (English)",
+    "author": "尼科洛·马基雅维利",
+    "author_en": "Niccolò Machiavelli",
+    "category": "machiavelli",
+    "path": "library/machiavelli/discourses/en/",
+    "language": "en",
+    "books": 3,
+    "chapters": 141,
+    "notes": "Ninian Hill Thomson 英译（Gutenberg 10827），Book III 缺 Ch.XXII（原版跳号）"
+  },
+  {
     "id": "florentine-zh",
     "title": "佛罗伦萨史",
     "title_en": "Florentine Histories",

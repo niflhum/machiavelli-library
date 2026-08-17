@@ -1,59 +1,9 @@
-# CHAPTER XIX —_Whether Indulgence or Severity be more necessary for
+# CHAPTER XIX.—_After a strong Prince a weak Prince may maintain himself: but after one weak Prince no Kingdom can stand a second._ When we contemplate the excellent qualities of Romulus, Numa, and
 
-CHAPTER XIX.—_Whether Indulgence or Severity be more necessary for
-controlling a Multitude._
+When we contemplate the excellent qualities of Romulus, Numa, and Tullus, the first three kings of Rome, and note the methods which they followed, we recognize the extreme good fortune of that city in having her first king fierce and warlike, her second peaceful and religious, and her third, like the first, of a high spirit and more disposed to war than to peace. For it was essential for Rome that almost at the outset of her career, a ruler should be found to lay the foundations of her civil life; but, after that had been done, it was necessary that her rulers should return to the virtues of Romulus, since otherwise the city must have grown feeble, and become a prey to her neighbours.
 
+And here we may note that a prince who succeeds to another of superior valour, may reign on by virtue of his predecessor’s merits, and reap the fruits of his labours; but if he live to a great age, or if he be followed by another who is wanting in the qualities of the first, that then the kingdom must necessarily dwindle. Conversely, when two consecutive princes are of rare excellence, we commonly find them achieving results which win for them enduring renown. David, for example, not only surpassed in learning and judgment, but was so valiant in arms that, after conquering and subduing all his neighbours, he left to his young son Solomon a tranquil State, which the latter, though unskilled in the arts of war, could maintain by the arts of peace, and thus happily enjoy the inheritance of his father’s valour. But Solomon could not transmit this inheritance to his son Rehoboam, who neither resembling his grandfather in valour, nor his father in good fortune, with difficulty made good his right to a sixth part of the kingdom. In like manner Bajazet, sultan of the Turks, though a man of peace rather than of war, was able to enjoy the labours of Mahomet his father, who, like David, having subdued his neighbours, left his son a kingdom so safely established that it could easily be retained by him by peaceful arts. But had Selim, son to Bajazet, been like his father, and not like his grandfather, the Turkish monarchy must have been overthrown; as it is, he seems likely to outdo the fame of his grandsire.
 
-The Roman Republic was distracted by the feuds of the nobles and
-commons. Nevertheless, on war breaking out, Quintius and Appius
-Claudius were sent forth in command of Roman armies. From his harshness
-and severity to his soldiers, Appius was so ill obeyed by them, that
-after sustaining what almost amounted to a defeat, he had to resign his
-command. Quintius, on the contrary, by kindly and humane treatment,
-kept his men obedient and returned victorious to Rome. From this it
-might seem that to govern a large body of men, it is better to be
-humane than haughty, and kindly rather than severe.
+I affirm it to be proved by these examples, that after a valiant prince a feeble prince may maintain himself; but that no kingdom can stand when two feeble princes follow in succession, unless, as in the case of France, it be supported by its ancient ordinances. By feeble princes, I mean such as are not valiant in war. And, to put the matter shortly, it may be said, that the great valour of Romulus left Numa a period of many years within which to govern Rome by peaceful arts; that after Numa came Tullus, who renewed by his courage the fame of Romulus; and that he in turn was succeeded by Ancus, a prince so gifted by nature that he could equally avail himself of the methods of peace or war; who setting himself at first to pursue the former, when he found that his neighbours judged him to be effeminate, and therefore held him in slight esteem, understood that to preserve Rome he must resort to arms and resemble Romulus rather than Numa. From whose example every ruler of a State may learn that a prince like Numa will hold or lose his power according as fortune and circumstances befriend him; but that the prince who resembles Romulus, and like him is fortified with foresight and arms, will hold his State whatever befall, unless deprived of it by some stubborn and irresistible force. For we may reckon with certainty that if Rome had not had for her third king one who knew how to restore her credit by deeds of valour, she could not, or at any rate not without great difficulty, have afterwards held her ground, nor could ever have achieved the great exploits she did.
 
-And yet Cornelius Tacitus, with whom many other authors are agreed,
-pronounces a contrary opinion where he says, “_In governing a multitude
-it avails more to punish than to be compliant._”[14] If it be asked how
-these opposite views can be reconciled, I answer that you exercise
-authority either over men used to regard you as their equal, or over
-men who have always been subject to you. When those over whom you
-exercise authority are your equals, you cannot trust wholly to
-punishment or to that severity of which Tacitus speaks. And since in
-Rome itself the commons had equal weight with the nobles, none
-appointed their captain for a time only, could control them by using
-harshness and severity. Accordingly we find that those Roman captains
-who gained the love of their soldiers and were considerate of them,
-often achieved greater results than those who made themselves feared by
-them in an unusual degree, unless, like Manlius Torquatus, these last
-were endowed with consummate valour. But he who has to govern subjects
-such as those of whom Tacitus speaks, to prevent their growing insolent
-and trampling upon him by reason of his too great easiness, must resort
-to punishment rather than to compliance. Still, to escape hatred,
-punishment should be moderate in degree, for to make himself hated is
-never for the interest of any prince. And to escape hatred, a prince
-has chiefly to guard against tampering with the property of any of his
-subjects; for where nothing is to be gained by it, no prince will
-desire to shed blood, unless, as seldom happens, constrained to do so
-by necessity. But where advantage is to be gained thereby, blood will
-always flow, and neither the desire to shed it, nor causes for shedding
-it will ever be wanting, as I have fully shown when discussing this
-subject in another treatise.
-
- [14] “In multitudine regenda plus poena quam obsequium valet.” But
- compare Annals, III. 55, “Obsequium inde in principem et æmulandi amoi
- validioi quam poena ex legibus et metus.”
-
-
-Quintius therefore was more deserving of praise than Appius.
-Nevertheless the opinion of Tacitus, duly restricted and not understood
-as applying to a case like that of Appius, merits approval. But since I
-have spoken of punishment and indulgence, it seems not out of place to
-show how a single act of humanity availed more than arms with the
-citizens of Falerii.
-
-
-
-
+And for these reasons Rome, while she lived under her kings, was in constant danger of destruction through a king who might be weak or bad.

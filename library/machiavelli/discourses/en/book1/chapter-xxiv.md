@@ -1,55 +1,5 @@
-# CHAPTER XXIV —_That prolonged Commands brought Rome to Servitude_.
+# CHAPTER XXIV.—_That well-ordered States always provide Rewards and Punishments for their Citizens; and never set off Deserts against Misdeeds_.
 
-CHAPTER XXIV.—_That prolonged Commands brought Rome to Servitude_.
+The valour of Horatius in vanquishing the Curiatii deserved the highest reward. But in slaying his sister he had been guilty of a heinous crime. And so displeasing to the Romans was an outrage of this nature, that although his services were so great and so recent, they brought him to trial for his life. To one looking at it carelessly, this might seem an instance of popular ingratitude, but he who considers the matter more closely, and examines with sounder judgment what the ordinances of a State should be, will rather blame the Roman people for acquitting Horatius than for putting him on his trial. And this because no well-ordered State ever strikes a balance between the services of its citizens and their misdeeds; but appointing rewards for good actions and punishment for bad, when it has rewarded a man for acting well, will afterwards, should he act ill, chastise him, without regard to his former deserts. When these ordinances are duly observed, a city will live long in freedom, but when they are neglected, it must soon come to ruin. For when a citizen has rendered some splendid service to his country, if to the distinction which his action in itself confers, were added an over-weening confidence that any crime he might thenceforth commit would pass unpunished, he would soon become so arrogant that no civil bonds could restrain him.
 
-
-If we well examine the course of Roman history, we shall find two
-causes leading to the break-up of that republic: one, the dissensions
-which arose in connection with the agrarian laws; the other, the
-prolongation of commands. For had these matters been rightly understood
-from the first, and due remedies applied, the freedom of Rome had been
-far more lasting, and, possibly, less disturbed. And although, as
-touching the prolongation of commands, we never find any tumult
-breaking out in Rome on that account, we do in fact discern how much
-harm was done to the city by the ascendency which certain of its
-citizens thereby gained. This mischief indeed would not have arisen, if
-other citizens whose period of office was extended had been as good and
-wise as Lucius Quintius, whose virtue affords a notable example. For
-terms of accord having been settled between the senate and commons of
-Rome, the latter, thinking their tribunes well able to withstand the
-ambition of the nobles, prolonged their authority for a year.
-Whereupon, the senate, not to be outdone by the commons, proposed, out
-of rivalry, to extend the consulship of Quintius. He, however, refused
-absolutely to lend himself to their designs, and insisted on their
-appointing new consuls, telling them that they should seek to discredit
-evil examples, not add to them by setting worse. Had this prudence and
-virtue of his been shared by all the citizens of Rome, the practice of
-prolonging the terms of civil offices would not have been suffered to
-establish itself, nor have led to the kindred practice of extending the
-term of military commands, which in progress of time effected the ruin
-of their republic.
-
-The first military commander whose term was extended, was Publius
-Philo; for when his consulship was about to expire, he being then
-engaged in the siege of Palæopolis, the senate, seeing he had the
-victory in his hands, would not displace him by a successor, but
-appointed him _Proconsul_, which office he was the first to hold. Now,
-although in thus acting the senate did what they thought best for the
-public good, nevertheless it was this act of theirs that in time
-brought Rome to slavery. For the further the Romans carried their arms,
-the more necessary it seemed to them to grant similar extensions of
-command, and the oftener they, in fact, did so. This gave rise to two
-disadvantages: first that a smaller number of men were trained to
-command; second, that by the long continuance of his command a captain
-gained so much influence and ascendency over his soldiers that in time
-they came to hold the senate of no account, and looked only to him.
-This it was, that enabled Sylla and Marius to find adherents ready to
-follow them even to the public detriment, and enabled Cæsar to
-overthrow the liberties of his country; whereas, had the Romans never
-prolonged the period of authority, whether civil or military, though
-they might have taken longer to build up their empire, they certainly
-had been later in incurring servitude.
-
-
-
-
+Still, while we would have punishment terrible to wrongdoers, it is essential that good actions should be rewarded, as we see to have been the case in Rome. For even where a republic is poor, and has but little to give, it ought not to withhold that little; since a gift, however small, bestowed as a reward for services however great, will always be esteemed most honourable and precious by him who receives it. The story of Horatius Cocles and that of Mutius Scævola are well known: how the one withstood the enemy on the bridge while it was being cut down, and the other thrust his hand into the fire in punishment of the mistake made when he sought the life of Porsenna the Etruscan king. To each of these two, in requital of their splendid deeds, two ploughgates only of the public land were given. Another famous story is that of Manlius Capitolinus, to whom, for having saved the Capitol from the besieging Gauls, a small measure of meal was given by each of those who were shut up with him during the siege. Which recompense, in proportion to the wealth of the citizens of Rome at that time, was thought ample; so that afterwards, when Manlius, moved by jealousy and malice, sought to arouse sedition in Rome, and to gain over the people to his cause, they without regard to his past services threw him headlong from that Capitol in saving which he had formerly gained so great a renown.

@@ -1,7 +1,0 @@
-# BOOK III
-
-BOOK III.
-
-
-
-

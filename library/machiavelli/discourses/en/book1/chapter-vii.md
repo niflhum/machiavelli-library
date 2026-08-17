@@ -1,40 +1,13 @@
-# CHAPTER VII —_Why it is that changes from Freedom to Servitude, and
+# CHAPTER VII.—_That to preserve Liberty in a State there must exist the Right to accuse._ To those set forward in a commonwealth as guardians of public freedom,
 
-CHAPTER VII.—_Why it is that changes from Freedom to Servitude, and
-from Servitude to Freedom, are sometimes made without Bloodshed, but at
-other times reek with Blood_.
+To those set forward in a commonwealth as guardians of public freedom, no more useful or necessary authority can be given than the power to accuse, either before the people, or before some council or tribunal, those citizens who in any way have offended against the liberty of their country.
 
+A law of this kind has two effects most beneficial to a State: _first,_ that the citizens from fear of being accused, do not engage in attempts hurtful to the State, or doing so, are put down at once and without respect of persons: and _next,_ that a vent is given for the escape of all those evil humours which, from whatever cause, gather in cities against particular citizens; for unless an outlet be duly provided for these by the laws, they flow into irregular channels and overwhelm the State. There is nothing, therefore, which contributes so much to the stability and permanence of a State, as to take care that the fermentation of these disturbing humours be supplied by operation of law with a recognized outlet. This might be shown by many examples, but by none so clearly as by that of Coriolanus related by Livius, where he tells us, that at a time when the Roman nobles were angry with the plebeians (thinking that the appointment of tribunes for their protection had made them too powerful), it happened that Rome was visited by a grievous famine, to meet which the senate sent to Sicily for corn. But Coriolanus, hating the commons, sought to persuade the senate that now was the time to punish them, and to deprive them of the authority which they had usurped to the prejudice of the nobles, by withholding the distribution of corn, and so suffering them to perish of hunger. Which advice of his coming to the ears of the people, kindled them to such fury against him, that they would have slain him as he left the Senate House, had not the tribunes cited him to appear and answer before them to a formal charge.
 
-Since we find from history that in the countless changes which have
-been made from freedom to servitude and from servitude to freedom,
-sometimes an infinite multitude have perished, while at others not a
-soul has suffered (as when Rome made her change from kings to consuls,
-on which occasion none was banished save Tarquin, and no harm was done
-to any other), it may perhaps be asked, how it happens that of these
-revolutions, some have been attended by bloodshed and others not.
+In respect of this incident I repeat what I have just now said, how useful and necessary it is for republics to provide by their laws a channel by which the displeasure of the multitude against a single citizen may find a vent. For when none such is regularly provided, recourse will be had to irregular channels, and these will assuredly lead to much worse results. For when a citizen is borne down by the operation of the ordinary laws, even though he be wronged, little or no disturbance is occasioned to the state: the injury he suffers not being wrought by private violence, nor by foreign force, which are the causes of the overthrow of free institutions, but by public authority and in accordance with public ordinances, which, having definite limits set them, are not likely to pass beyond these so as to endanger the commonwealth. For proof of which I am content to rest on this old example of Coriolanus, since all may see what a disaster it would have been for Rome had he been violently put to death by the people. For, as between citizen and citizen, a wrong would have been done affording ground for fear, fear would have sought defence, defence have led to faction, faction to divisions in the State, and these to its ruin. But the matter being taken up by those whose office it was to deal with it, all the evils which must have followed had it been left in private hands were escaped.
 
-The answer I take to be this. The government which suffers change
-either has or has not had its beginning in violence. And since the
-government which has its beginning in violence must start by inflicting
-injuries on many, it must needs happen that on its downfall those who
-were injured will desire to avenge themselves; from which desire for
-vengeance the slaughter and death of many will result. But when a
-government originates with, and derives its authority from the whole
-community, there is no reason why the community, if it withdraw that
-authority, should seek to injure any except the prince from whom it
-withdraws it. Now the government of Rome was of this nature, and the
-expulsion of the Tarquins took place in this way. Of a like character
-was the government of the Medici in Florence, and, accordingly, upon
-their overthrow in the year 1494, no injury was done to any save
-themselves.
+In Florence, on the other hand, and in our own days, we have seen what violent commotions follow when the people cannot show their displeasure against particular citizens in a form recognized by the laws, in the instance of Francesco Valori, at one time looked upon as the foremost citizen of our republic. But many thinking him ambitious, and likely from his high spirit and daring to overstep the limits of civil freedom, and there being no way to oppose him save by setting up an adverse faction, the result was, that, apprehending irregular attacks, he sought to gain partisans for his support; while his opponents, on their side, having no course open to them of which the laws approved, resorted to courses of which the laws did not approve, and, at last, to open violence. And as his influence had to be attacked by unlawful methods, these were attended by injury not to him only, but to many other noble citizens; whereas, could he have been met by constitutional restraints, his power might have been broken without injury to any save himself. I might also cite from our Florentine history the fall of Piero Soderini, which had no other cause than there not being in our republic any law under which powerful and ambitious citizens can be impeached. For to form a tribunal by which a powerful citizen is to be tried, eight judges only are not enough; the judges must be numerous, because a few will always do the will of a few. But had there been proper methods for obtaining redress, either the people would have impeached Piero if he was guilty, and thus have given vent to their displeasure without calling in the Spanish army; or if he was innocent, would not have ventured, through fear of being accused themselves, to have taken proceedings against him. So that in either case the bitter spirit which was the cause of all the disorder would have had an end. Wherefore, when we find one of the parties in a State calling in a foreign power, we may safely conclude that it is because the defective laws of that State provide no escape for those malignant humours which are natural to men; which can best be done by arranging for an impeachment before a sufficient number of judges, and by giving countenance to this procedure. This was so well contrived in Rome that in spite of the perpetual struggle maintained between the commons and the senate, neither the senate nor the commons, nor any single citizen, ever sought redress at the hands of a foreign power; for having a remedy at home, there was no need to seek one abroad.
 
-In such cases, therefore, the changes I speak of do not occasion any
-very great danger. But the changes wrought by men who have wrongs to
-revenge, are always of a most dangerous kind, and such, to say the
-least, as may well cause dismay in the minds of those who read of them.
-But since history abounds with instances of such changes I need say no
-more about them.
+Although the examples above cited be proof sufficient of what I affirm, I desire to adduce one other, recorded by Titus Livius in his history, where he relates that a sister of Aruns having been violated by a Lucumo of Clusium, the chief of the Etruscan towns, Aruns being unable, from the interest of her ravisher, to avenge her, betook himself to the Gauls who ruled in the province we now name Lombardy, and besought them to come with an armed force to Clusium; showing them how with advantage to themselves they might avenge his wrongs. Now, had Aruns seen that he could have had redress through the laws of his country, he never would have resorted to these Barbarians for help.
 
-
-
-
+But as the right to accuse is beneficial in a republic, so calumny, on the other hand, is useless and hurtful, as in the following Chapter I shall proceed to show.

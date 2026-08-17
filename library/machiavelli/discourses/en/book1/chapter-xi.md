@@ -1,81 +1,17 @@
-# CHAPTER XI —_That one who has to contend with many, though he be weaker
+# CHAPTER XI.—_Of the Religion of the Romans._ Though Rome had Romulus for her first founder, and as a daughter owed him her being and nurture, nevertheless, when the institutions of
 
-CHAPTER XI.—_That one who has to contend with many, though he be weaker
-than they, will prevail if he can withstand their first onset._
+Though Rome had Romulus for her first founder, and as a daughter owed him her being and nurture, nevertheless, when the institutions of Romulus were seen by Heaven to be insufficient for so great a State, the Roman senate were moved to choose Numa Pompilius as his successor, that he might look to all matters which Romulus had neglected. He finding the people fierce and turbulent, and desiring with the help of the peaceful arts to bring them to order and obedience, called in the aid of religion as essential to the maintenance of civil society, and gave it such a form, that for many ages God was nowhere so much feared as in that republic. The effect of this was to render easy any enterprise in which the senate or great men of Rome thought fit to engage. And whosoever pays heed to an infinity of actions performed, sometimes by the Roman people collectively, often by single citizens, will see, that esteeming the power of God beyond that of man, they dreaded far more to violate their oath than to transgress the laws; as is clearly shown by the examples of Scipio and of Manlius Torquatus. For after the defeat of the Romans by Hannibal at Cannæ, many citizens meeting together, resolved, in their terror and dismay, to abandon Italy and seek refuge in Sicily. But Scipio, getting word of this, went among them, and menacing them with his naked sword, made them swear never to abandon their country. Again, when Lucius Manlius was accused by the tribune Marcus Pomponius, before the day fixed for trial, Titus Manlius, afterwards named Torquatus, son to Lucius, went to seek this Marcus, and threatening him with death if he did not withdraw the charge against his father, compelled him to swear compliance; and he, through fear, having sworn, kept his oath. In the first of these two instances, therefore, citizens whom love of their country and its laws could not have retained in Italy, were kept there by the oath forced upon them; and in the second, the tribune Marcus, to keep his oath, laid aside the hatred he bore the father, and overlooked the injury done him by the son, and his own dishonour. And this from no other cause than the religion which Numa had impressed upon this city.
 
+And it will be plain to any one who carefully studies Roman History, how much religion helped in disciplining the army, in uniting the people, in keeping good men good, and putting bad men to shame; so that had it to be decided to which prince, Romulus or Numa, Rome owed the greater debt, I think the balance must turn in favour of Numa; for when religion is once established you may readily bring in arms; but where you have arms without religion it is not easy afterwards to bring in religion. We see, too, that while Romulus in order to create a senate, and to establish his other ordinances civil and military, needed no support from Divine authority, this was very necessary to Numa, who feigned to have intercourse with a Nymph by whose advice he was guided in counselling the people. And this, because desiring to introduce in Rome new and untried institutions, he feared that his own authority might not effect his end. Nor, indeed, has any attempt ever been made to introduce unusual laws among a people, without resorting to Divine authority, since without such sanction they never would have been accepted. For the wise recognize many things to be good which do not bear such reasons on the face of them as command their acceptance by others; wherefore, wise men who would obviate these difficulties, have recourse to Divine aid. Thus did Lycurgus, thus Solon, and thus have done many besides who have had the same end in view.
 
-The power exercised in Rome by the tribunes of the people was great,
-and, as I have repeatedly explained, was necessary, since otherwise
-there would have been no check on the ambition of the nobles, and the
-commonwealth must have grown corrupted far sooner than it did. But
-because, as I have said elsewhere, there is in everything a latent evil
-peculiar to it, giving rise to new mischances, it becomes necessary to
-provide against these by new ordinances. The authority of the tribunes,
-therefore, being insolently asserted so as to become formidable to the
-nobility and to the entire city, disorders dangerous to the liberty of
-the State must thence have resulted, had not a method been devised by
-Appius Claudius for controlling the ambition of the tribunes. This was,
-to secure that there should always be one of their number timid, or
-venal, or else a lover of the general good, who could be influenced to
-oppose the rest whenever these sought to pass any measure contrary to
-the wishes of the senate. This remedy was a great restraint on the
-excessive authority of the tribunes, and on many occasions proved
-serviceable to Rome.
+The Romans, accordingly, admiring the prudence and virtues of Numa, assented to all the measures which he recommended. This, however, is to be said, that the circumstance of these times being deeply tinctured with religious feeling, and of the men with whom he had to deal being rude and ignorant, gave Numa better facility to carry out his plans, as enabling him to mould his subjects readily to any new impression. And, doubtless, he who should seek at the present day to form a new commonwealth, would find the task easier among a race of simple mountaineers, than among the dwellers in cities where society is corrupt; as the sculptor can more easily carve a fair statue from a rough block, than from the block which has been badly shaped out by another. But taking all this into account, I maintain that the religion introduced by Numa was one of the chief causes of the prosperity of Rome, since it gave rise to good ordinances, which in turn brought with them good fortune, and with good fortune, happy issues to whatsoever was undertaken.
 
-I am led by this circumstance to remark, that when many powerful
-persons are united against one, who, although no match for the others
-collectively, is also powerful, the chances are more in favour of this
-single and less I powerful person, than of the many who together are
-much stronger. For setting aside an infinity of accidents which can be
-turned to better account by one than by many, it will always happen
-that, by exercising a little dexterity, the one will be able to divide
-the many, and weaken the force which was strong while it was united. In
-proof whereof, I shall not refer to ancient examples, though many such
-might be cited, but content myself with certain modern instances taken
-from the events of our own times.
+And as the observance of the ordinances of religion is the cause of the greatness of a State, so their neglect is the occasion of its decline; since a kingdom without the fear of God must either fall to pieces, or must be maintained by the fear of some prince who supplies that influence not supplied by religion. But since the lives of princes are short, the life of this prince, also, and with it his influence, must soon come to an end; whence it happens that a kingdom which rests wholly on the qualities of its prince, lasts for a brief time only; because these qualities, terminating with his life, are rarely renewed in his successor. For as Dante wisely says:—
 
-In the year 1484, all Italy combined against the Venetians, who finding
-their position desperate, and being unable to keep their army any
-longer in the field, bribed Signer Lodovico, who then governed Milan,
-and so succeeded in effecting a settlement, whereby they not only
-recovered the towns they had lost, but also obtained for themselves a
-part of the territories of Ferrara; so that those were by peace the
-gainers, who in war had been the losers. Not many years ago the whole
-world was banded together against France; but before the war came to a
-close, Spain breaking with the confederates and entering into a
-separate treaty with France, the other members of the league also, were
-presently forced to make terms.
+“Seldom through the boughs Doth human worth renew itself; for such The will of Him who gives it, that to Him We may ascribe it.”[1]
 
-Wherefore we may always assume when we see a war set on foot by many
-against one, that this one, if he have strength to withstand the first
-shock, and can temporize and wait his opportunity, is certain to
-prevail. But unless he can do this he runs a thousand dangers: as did
-the Venetians in the year 1508, who, could they have temporized with
-the French, and so got time to conciliate some of those who had
-combined against them, might have escaped the ruin which then overtook
-them. But not possessing such a strong army as would have enabled them
-to temporize with their enemies, and consequently not having the time
-needed for gaining any to their side, they were undone. Yet we know
-that the Pope, as soon as he had obtained what he wanted, made friends
-with them, and that Spain did the like; and that both the one and the
-other of these powers would gladly have saved the Lombard territory for
-themselves, nor would, if they could have helped it, have left it to
-France, so as to augment her influence in Italy.
+[1] Rade volta risurge per li rami L’umana probitate: e questo vuole Quei che la dà, perchè da lui si chiami. _Purg_. vii. 121-123.]
 
-The Venetians, therefore, should have given up a part to save the rest;
-and had they done so at a time when the surrender would not have seemed
-to be made under compulsion, and before any step had been taken in the
-direction of war, it would have been a most prudent course; although
-discreditable and probably of little avail after war had been begun.
-But until the war broke out, few of the Venetian citizens recognized
-the danger, fewer still the remedy, and none ventured to prescribe it.
+It follows, therefore, that the safety of a commonwealth or kingdom lies, not in its having a ruler who governs it prudently while he lives, but in having one who so orders things, that when he dies, the State may still maintain itself. And though it be easier to impose new institutions or a new faith on rude and simple men, it is not therefore impossible to persuade their adoption by men who are civilized, and who do not think themselves rude. The people of Florence do not esteem themselves rude or ignorant, and yet were persuaded by the Friar Girolamo Savonarola that he spoke with God. Whether in this he said truth or no, I take not on me to pronounce, since of so great a man we must speak with reverence; but this I do say, that very many believed him without having witnessed anything extraordinary to warrant their belief; his life, his doctrines, the matter whereof he treated, being sufficient to enlist their faith.
 
-But to return to the point whence we started, I say that the same
-safeguard for their country which the Roman senate found against the
-ambition of the tribunes in their number, is within the reach of the
-prince who is attacked by many adversaries, if he only know to use
-prudently those methods which promote division.
-
-
-
-
+Let no man, therefore, lose heart from thinking that he cannot do what others have done before him; for, as I said in my Preface, men are born, and live, and die, always in accordance with the same rules.

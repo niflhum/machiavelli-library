@@ -1,82 +1,9 @@
-# CHAPTER XXXIX —_That a Captain should have good knowledge of Places._
+# CHAPTER XXXIX.—_That often the same Accidents are seen to befall different Nations._ Any one comparing the present with the past will soon perceive that in
 
-CHAPTER XXXIX.—_That a Captain should have good knowledge of Places._
+Any one comparing the present with the past will soon perceive that in all cities and in all nations there prevail the same desires and passions as always have prevailed; for which reason it should be an easy matter for him who carefully examines past events, to foresee those which are about to happen in any republic, and to apply such remedies as the ancients have used in like cases; or finding none which have been used by them, to strike out new ones, such as they might have used in similar circumstances. But these lessons being neglected or not understood by readers, or, if understood by them, being unknown to rulers, it follows that the same disorders are common to all times.
 
+In the year 1494 the Republic of Florence, having lost a portion of its territories, including Pisa and other towns, was forced to make war against those who had taken possession of them, who being powerful, it followed that great sums were spent on these wars to little purpose. This large expenditure had to be met by heavy taxes which gave occasion to numberless complaints on the part of the people; and inasmuch as the war was conducted by a council of ten citizens, who were styled “the Ten of the War,” the multitude began to regard these with displeasure, as though they were the cause of the war and of the consequent expenditure; and at last persuaded themselves that if they got rid of this magistracy there would be an end to the war. Wherefore when the magistracy of “the Ten” should have been renewed, the people did not renew it, but, suffering it to lapse, entrusted their affairs to the “Signory.” This course was most pernicious, since not only did it fail to put an end to the war, as the people expected it would, but by setting aside men who had conducted it with prudence, led to such mishaps that not Pisa only, but Arezzo also, and many other towns besides were lost to Florence. Whereupon, the people recognizing their mistake, and that the evil was in the disease and not in the physician, reinstated the magistracy of the Ten.
 
-Among other qualifications essential in a good captain is a knowledge,
-both general and particular, of places and countries, for without such
-knowledge it is impossible for him to carry out any enterprise in the
-best way. And while practice is needed for perfection in every art, in
-this it is needed in the highest degree. Such practice, or particular
-knowledge as it may be termed, is sooner acquired in the chase than in
-any other exercise; and, accordingly, we find it said by ancient
-historians that those heroes who, in their day, ruled the world, were
-bred in the woods and trained to the chase; for this exercise not
-merely gives the knowledge I speak of, but teaches countless other
-lessons needful in war. And Xenophon in his life of Cyrus tells us,
-that Cyrus, on his expedition against the King of Armenia, when
-assigning to each of his followers the part he was to perform, reminded
-them that the enterprise on which they were engaged, differed little
-from one of those hunting expeditions on which they had gone so often
-in his company; likening those who were to lie in ambush in the
-mountains, to the men sent to spread the toils on the hill-tops; and
-those who were to overrun the plain, to the beaters whose business it
-is to start the game from its lair that it may be driven into the
-toils. Now, this is related to show how, in the opinion of Xenophon,
-the chase is a mimic representation of war, and therefore to be
-esteemed by the great as useful and honourable.
+Similar dissatisfaction grew up in Rome against the consular authority. For the people seeing one war follow another, and that they were never allowed to rest, when they should have ascribed this to the ambition of neighbouring nations who desired their overthrow, ascribed it to the ambition of the nobles, who, as they believed, being unable to wreak their hatred against them within the city, where they were protected by the power of the tribunes, sought to lead them outside the city, where they were under the authority of the consuls, that they might crush them where they were without help. In which belief they thought it necessary either to get rid of the consuls altogether, or so to restrict their powers as to leave them no authority over the people, either in the city or out of it.
 
-Nor can that knowledge of countries which I have spoken of as necessary
-in a commander, be obtained in any convenient way except by the chase.
-For he who joins therein gains a special acquaintance with the
-character of the country in which it is followed; and he who has made
-himself specially familiar with one district, will afterwards readily
-understand the character of any strange country into which he comes.
-For all countries, and the districts of which they are made up, have a
-certain resemblance to one another, so that from a knowledge of one we
-can pass easily to the knowledge of another. He therefore who is
-without such practical acquaintance with some one country, can only
-with difficulty, and after a long time, obtain a knowledge of another,
-while he who possesses it can take in at a glance how this plain
-spreads, how that mountain slopes, whither that valley winds, and all
-other like particulars in respect of which he has already acquired a
-certain familiarity.
-
-The truth of what I affirm is shown by Titus Livius in the case of
-Publius Decius, who, being military tribune in the army which the
-consul Cornelius led against the Samnites, when the consul advanced
-into a defile where the Roman army were like to be shut in by the
-enemy, perceiving the great danger they ran, and noting, as Livius
-relates, a hill which rose by a steep ascent and overhung the enemy’s
-camp, and which, though hard of access for heavy-armed troops,
-presented little difficulty to troops lightly armed, turned to the
-consul and said:—“_Seest thou, Aulus Cornelius, yonder height over
-above the enemy, which they have been blind enough to neglect? There,
-were we manfully to seize it, might we find the citadel of our hopes
-and of our safety._” Whereupon, he was sent by the consul with three
-thousand men to secure the height, and so saved the Roman army. And as
-it was part of his plan to make his own escape and carry off his men
-safely under shelter of night, Livius represents him as saying to his
-soldiers:—“_Come with me, that, while daylight still serves, we may
-learn where the enemy have posted their guards, and by what exit we may
-issue hence._” Accordingly, putting on the cloak of a common soldier,
-lest the enemy should observe that an officer was making his rounds he
-surveyed their camp in all directions.
-
-Now any one who carefully studies the whole of this passage, must
-perceive how useful and necessary it is for a captain to know the
-nature of places, which knowledge had Decius not possessed he could not
-have decided that it would be for the advantage of the Roman army to
-occupy this hill; nor could he have judged from a distance whether the
-hill was accessible or no; and when he reached the summit and desired
-to return to the consul, since he was surrounded on all sides by the
-enemy, he never could have distinguished the path it was safe for him
-to take, from those guarded by the foe. For all which reasons it was
-absolutely essential that Decius should have that thorough knowledge
-which enabled him by gaining possession of this hill to save the Roman
-army, and to discover a path whereby, in the event of his being
-attacked, he and his followers might escape.
-
-
-
-
+The first who attempted to pass a law to this effect was the tribune Terentillus, who proposed that a committee of five should be named to consider and regulate the power of the consuls. This roused the anger of the nobles, to whom it seemed that the greatness of their authority was about to set for ever, and that no part would be left them in the administration of the republic. Such, however, was the obstinacy of the tribunes, that they succeeded in abolishing the consular title, nor were satisfied until, after other changes, it was resolved that, in room of consuls, tribunes should be appointed with consular powers; so much greater was their hatred of the name than of the thing. For a long time matters remained on this footing; till eventually, the commons, discovering their mistake, resumed the appointment of consuls in the same way as the Florentines reverted to “the Ten of the War.”

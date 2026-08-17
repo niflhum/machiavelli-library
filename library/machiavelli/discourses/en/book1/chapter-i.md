@@ -1,185 +1,23 @@
-# CHAPTER I —_For a Sect or Commonwealth to last long, it must often be
+# CHAPTER I.—_Of the Beginnings of Cities in general, and in particular of that of Rome._ No one who reads how the city of Rome had its beginning, who were its
 
-CHAPTER I.—_For a Sect or Commonwealth to last long, it must often be
-brought back to its Beginnings._
+No one who reads how the city of Rome had its beginning, who were its founders, and what its ordinances and laws, will marvel that so much excellence was maintained in it through many ages, or that it grew afterwards to be so great an Empire.
 
+And, first, as touching its origin, I say, that all cities have been founded either by the people of the country in which they stand, or by strangers. Cities have their origins in the former of these two ways when the inhabitants of a country find that they cannot live securely if they live dispersed in many and small societies, each of them unable, whether from its situation or its slender numbers, to stand alone against the attacks of its enemies; on whose approach there is no time left to unite for defence without abandoning many strongholds, and thus becoming an easy prey to the invader. To escape which dangers, whether of their own motion or at the instance of some of greater authority among them, they restrict themselves to dwell together in certain places, which they think will be more convenient to live in and easier to defend.
 
-Doubtless, all the things of this world have a limit set to their
-duration; yet those of them the bodies whereof have not been suffered
-to grow disordered, but have been so cared for that either no change at
-all has been wrought in them, or, if any, a change for the better and
-not for the worse, will run that course which Heaven has in a general
-way appointed them. And since I am now speaking of mixed bodies, for
-States and Sects are so to be regarded, I say that for them these are
-wholesome changes which bring them back to their first beginnings.
+Among many cities taking their origin in this way were Athens and Venice; the former of which, for reasons like those just now mentioned, was built by a scattered population under the direction of Theseus. To escape the wars which, on the decay of the Roman Empire daily renewed in Italy by the arrival of fresh hordes of Barbarians, numerous refugees, sheltering in certain little islands in a corner of the Adriatic Sea, gave beginning to Venice; where, without any recognized leader to direct them, they agreed to live together under such laws as they thought best suited to maintain them. And by reason of the prolonged tranquility which their position secured, they being protected by the narrow sea and by the circumstance that the tribes who then harassed Italy had no ships wherewith to molest them, they were able from very small beginnings to attain to that greatness they now enjoy.
 
-Those States consequently stand surest and endure longest which, either
-by the operation of their institutions can renew themselves, or come to
-be renewed by accident apart from any design. Nothing, however, can be
-clearer than that unless thus renewed these bodies do not last. Now the
-way to renew them is, as I have said, to bring them back to their
-beginnings, since all beginnings of sects, commonwealths, or kingdoms
-must needs have in them a certain excellence, by virtue of which they
-gain their first reputation and make their first growth. But because in
-progress of time this excellence becomes corrupted, unless something be
-done to restore it to what it was at first, these bodies necessarily
-decay; for as the physicians tell us in speaking of the human body,
-“_Something or other is daily added which sooner or later will require
-treatment._”[10]
+In the second case, namely of a city being founded by strangers, the settlers are either wholly independent, or they are controlled by others, as where colonies are sent forth either by a prince or by a republic, to relieve their countries of an excessive population, or to defend newly acquired territories which it is sought to secure at small cost. Of this sort many cities were settled by the Romans, and in all parts of their dominions. It may also happen that such cities are founded by a prince merely to add to his renown, without any intention on his part to dwell there, as Alexandria was built by Alexander the Great. Cities like these, not having had their beginning in freedom, seldom make such progress as to rank among the chief towns of kingdoms.
 
- [10] “Quod quotidie aggregatur aliquid quod quandoque indiget
- curatione.”
+The city of Florence belongs to that class of towns which has not been independent from the first; for whether we ascribe its origin to the soldiers of Sylla, or, as some have conjectured, to the mountaineers of Fiesole (who, emboldened by the long peace which prevailed throughout the world during the reign of Octavianus, came down to occupy the plain on the banks of the Arno), in either case, it was founded under the auspices of Rome nor could, at first, make other progress than was permitted by the grace of the sovereign State.
 
+The origin of cities may be said to be independent when a people, either by themselves or under some prince, are constrained by famine, pestilence, or war to leave their native land and seek a new habitation. Settlers of this sort either establish themselves in cities which they find ready to their hand in the countries of which they take possession, as did Moses; or they build new ones, as did Æneas. It is in this last case that the merits of a founder and the good fortune of the city founded are best seen; and this good fortune will be more or less remarkable according to the greater or less capacity of him who gives the city its beginning.
 
-As regards commonwealths, this return to the point of departure is
-brought about either by extrinsic accident or by intrinsic foresight.
-As to the first, we have seen how it was necessary that Rome should be
-taken by the Gauls, that being thus in a manner reborn, she might
-recover life and vigour, and resume the observances of religion and
-justice which she had suffered to grow rusted by neglect. This is well
-seen from those passages of Livius wherein he tells us that when the
-Roman army was ‘sent forth against the Gauls, and again when tribunes
-were created with consular authority, no religious rites whatever were
-celebrated, and wherein he further relates how the Romans not only
-failed to punish the three Fabii, who contrary to the law of nations
-had fought against the Gauls, but even clothed them with honour. For,
-from these instances, we may well infer that the rest of the wise
-ordinances instituted by Romulus, and the other prudent kings, had
-begun to be held of less account than they deserved, and less than was
-essential for the maintenance of good government.
+The capacity of a founder is known in two ways: by his choice of a site, or by the laws which he frames. And since men act either of necessity or from choice, and merit may seem greater where choice is more restricted, we have to consider whether it may not be well to choose a sterile district as the site of a new city, in order that the inhabitants, being constrained to industry, and less corrupted by ease, may live in closer union, finding less cause for division in the poverty of their land; as was the case in Ragusa, and in many other cities built in similar situations. Such a choice were certainly the wisest and the most advantageous, could men be content to enjoy what is their own without seeking to lord it over others. But since to be safe they must be strong, they are compelled avoid these barren districts, and to plant themselves in more fertile regions; where, the fruitfulness of the soil enabling them to increase and multiply, they may defend themselves against any who attack them, and overthrow any who would withstand their power.
 
-And therefore it was that Rome was visited by this calamity from
-without, to the end that all her ordinances might be reformed, and the
-people taught that it behoved them not only to maintain religion and
-justice, but also to esteem their worthy citizens, and to prize their
-virtues beyond any advantages of which they themselves might seem to
-have been deprived at their instance. And this, we find, was just the
-effect produced. For no sooner was the city retaken, than all the
-ordinances of the old religion were at once restored; the Fabii, who
-had fought in violation of the law of nations, were punished; and the
-worth and excellence of Camillus so fully recognized, that the senate
-and the whole people, laying all jealousies aside, once more committed
-to him the entire charge of public affairs.
+And as for that languor which the situation might breed, care must be had that hardships which the site does not enforce, shall be enforced by the laws; and that the example of those wise nations be imitated, who, inhabiting most fruitful and delightful countries, and such as were likely to rear a listless and effeminate race, unfit for all manly exercises, in order to obviate the mischief wrought by the amenity and relaxing influence of the soil and climate, subjected all who were to serve as soldiers to the severest training; whence it came that better soldiers were raised in these countries than in others by nature rugged and barren. Such, of old, was the kingdom of the Egyptians, which, though of all lands the most bountiful, yet, by the severe training which its laws enforced, produced most valiant soldiers, who, had their names not been lost in antiquity, might be thought to deserve more praise than Alexander the Great and many besides, whose memory is still fresh in men’s minds. And even in recent times, any one contemplating the kingdom of the Soldan, and the military order of the Mamelukes before they were destroyed by Selim the Grand Turk, must have seen how carefully they trained their soldiers in every kind of warlike exercise; showing thereby how much they dreaded that indolence to which their genial soil and climate might have disposed them, unless neutralized by strenuous laws. I say, then, that it is a prudent choice to found your city in a fertile region when the effects of that fertility are duly balanced by the restraint of the laws.
 
-It is necessary then, as I have said already, that where men dwell
-together in a regulated society, they be often reminded of those
-ordinances in conformity with which they ought to live, either by
-something inherent in these, or else by some external accident. A
-reminder is given in the former of these two ways, either by the
-passing of some law whereby the members of the society are brought to
-an account; or else by some man of rare worth arising among them, whose
-virtuous life and example have the same effect as a law. In a
-Commonwealth, accordingly, this end is served either by the virtues of
-some one of its citizens, or by the operation of its institutions.
+When Alexander the Great thought to add to his renown by founding a city, Dinocrates the architect came and showed him how he might build it on Mount Athos, which not only offered a strong position, but could be handled that the city built there might present a semblance of the human form, which would be a thing strange and striking, and worthy of so great a monarch. But on Alexander asking how the inhabitants were to live, Dinocrates answered that he had not thought of that. Whereupon, Alexander laughed, and leaving Mount Athos as it stood, built Alexandria; where, the fruitfulness of the soil, and the vicinity of the Nile and the sea, might attract many to take up their abode.
 
-The institutions whereby the Roman Commonwealth was led back to its
-starting point, were the tribuneship of the people and the censorship,
-together with all those laws which were passed to check the insolence
-and ambition of its citizens. Such institutions, however, require fresh
-life to be infused into them by the worth of some one man who
-fearlessly devotes himself to give them effect in opposition to the
-power of those who set them at defiance.
+To him, therefore, who inquires into the origin of Rome, if he assign its beginning to Æneas, it will seem to be of those cities which were founded by strangers if to Romulus, then of those founded by the natives of the country. But in whichever class we place it, it will be seen to have had its beginning in freedom, and not in subjection to another State. It will be seen, too, as hereafter shall be noted, how strict was the discipline which the laws instituted by Romulus, Numa, and its other founders made compulsory upon it; so that neither its fertility, the proximity of the sea, the number of its victories, nor the extent of its dominion, could for many centuries corrupt it, but, on the contrary, maintained it replete with such virtues as were never matched in any other commonwealth.
 
-Of the laws being thus reinforced in Rome, before its capture by the
-Gauls, we have notable examples in the deaths of the sons of Brutus, of
-the Decemvirs, and of Manlius Frumentarius; and after its capture, in
-the deaths of Manlius Capitolinus, and of the son of Manlius Torquatus
-in the prosecution of his master of the knights by Papirius Cursor, and
-in the impeachment of the Scipios. Such examples as these, being signal
-and extraordinary, had the effect, whenever they took place, of
-bringing men back to the true standard of right; but when they came to
-be of rarer occurrence, they left men more leisure to grow corrupted,
-and were attended by greater danger and disturbance. Wherefore, between
-one and another of these vindications of the laws, no more than ten
-years, at most, ought to intervene; because after that time men begin
-to change their manners and to disregard the laws; and if nothing occur
-to recall the idea of punishment, and unless fear resume its hold on
-their minds, so many offenders suddenly spring up together that it is
-impossible to punish them without danger. And to this purport it used
-to be said by those who ruled Florence from the year 1434 to 1494, that
-their government could hardly be maintained unless it was renewed every
-five years; by which they meant that it was necessary for them to
-arouse the same terror and alarm in men’s minds, as they inspired when
-they first assumed the government, and when all who offended against
-their authority were signally chastised. For when the recollection of
-such chastisement has died out, men are emboldened to engage in new
-designs, and to speak ill of their rulers; for which the only remedy is
-to restore things to what they were at first.
-
-A republic may, likewise, be brought back to its original form, without
-recourse to ordinances for enforcing justice, by the mere virtues of a
-single citizen, by reason that these virtues are of such influence and
-authority that good men love to imitate them, and bad men are ashamed
-to depart from them. Those to whom Rome owed most for services of this
-sort, were Horatius Cocles, Mutius Scævola, the two Decii, Atilius
-Regulus, and divers others, whose rare excellence and generous example
-wrought for their city almost the same results as might have been
-effected by ordinances and laws. And if to these instances of
-individual worth had been added, every ten years, some signal
-enforcement of justice, it would have been impossible for Rome ever to
-have grown corrupted. But when both of these incitements to virtuous
-behavior began to recur less frequently, corruption spread, and after
-the time of Atilius Regulus, no like example was again witnessed. For
-though the two Catos came later, so great an interval had elapsed
-before the elder Cato appeared, and again, so long a period intervened
-between him and the younger, and these two, moreover, stood so much
-alone, that it was impossible for them, by their influence, to work any
-important change; more especially for the younger, who found Rome so
-much corrupted that he could do nothing to improve his fellow-citizens.
-
-This is enough to say concerning commonwealths, but as regards sects,
-we see from the instance of our own religion that here too a like
-renewal is needed. For had not this religion of ours been brought back
-to its original condition by Saint Francis and Saint Dominick, it must
-soon have been utterly extinguished. They, however, by their voluntary
-poverty, and by their imitation of the life of Christ, rekindled in the
-minds of men the dying flame of faith; and by the efficacious rules
-which they established averted from our Church that ruin which the ill
-lives of its prelates and heads must otherwise have brought upon it.
-For living in poverty, and gaining great authority with the people by
-confessing them and preaching to them, they got them to believe that it
-is evil to speak ill even of what is evil; and that it is good to be
-obedient to rulers, who, if they do amiss, may be left to the judgment
-of God. By which teaching these rulers are encouraged to behave as
-badly as they can, having no fear of punishments which they neither see
-nor credit. Nevertheless, it is this renewal which has maintained, and
-still maintains, our religion.
-
-Kingdoms also stand in need of a like renewal, and to have their laws
-restored to their former force; and we see how, by attending to this,
-the kingdom of France has profited. For that kingdom, more than any
-other, lies under the control of its laws and ordinances, which are
-maintained by its parliaments, and more especially by the parliament of
-Paris, from which last they derive fresh vigour whenever they have to
-be enforced against any prince of the realm; for this assembly
-pronounces sentence even against the king himself. Heretofore this
-parliament has maintained its name as the fearless champion of the laws
-against the nobles of the land; but should it ever at any future time
-suffer wrongs to pass unpunished, and should offences multiply, either
-these will have to be corrected with great disturbance to the State, or
-the kingdom itself must fall to pieces.
-
-This, then, is our conclusion—that nothing is so necessary in any
-society, be it a religious sect, a kingdom, or a commonwealth, as to
-restore to it that reputation which it had at first, and to see that it
-is provided either with wholesome laws, or with good men whose actions
-may effect the same ends, without need to resort to external force. For
-although this last may sometimes, as in the case of Rome, afford an
-efficacious remedy, it is too hazardous a remedy to make us ever wish
-to employ it.
-
-And that all may understand how much the actions of particular citizens
-helped to make Rome great, and how many admirable results they wrought
-in that city, I shall now proceed to set them forth and examine them;
-with which survey this Third Book of mine, and last division of the
-First Decade of Titus Livius, shall be brought to a close. But,
-although great and notable actions were done by the Roman kings,
-nevertheless, since history has treated of these at much length, here I
-shall pass them over, and say no more about these princes, save as
-regards certain things done by them with an eye to their private
-interest. I shall begin, therefore, with Brutus, the father of Roman
-freedom.
-
-
-
-
+And because the things done by Rome, and which Titus Livius has celebrated, were effected at home or abroad by public or by private wisdom, I shall begin by treating, and noting the consequences of those things done at home in accordance with the public voice, which seem most to merit attention; and to this object the whole of this first Book or first Part of my Discourses, shall be directed.

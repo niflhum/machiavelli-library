@@ -1,111 +1,11 @@
-# CHAPTER VIII —_That he who would effect Changes in a Commonwealth, must
+# CHAPTER VIII.—_That Calumny is as hurtful in a Commonwealth as the power to accuse is useful._ Such were the services rendered to Rome by Furius Camillus in rescuing
 
-CHAPTER VIII.—_That he who would effect Changes in a Commonwealth, must
-give heed to its Character and Condition_
+Such were the services rendered to Rome by Furius Camillus in rescuing her from the oppression of the Gauls, that no Roman, however high his degree or station, held it derogatory to yield place to him, save only Manlius Capitolinus, who could not brook such glory and distinction being given to another. For he thought that in saving the Capitol, he had himself done as much as Camillus to preserve Rome, and that in respect of his other warlike achievements he was no whit behind him. So that, bursting with jealousy, and unable to remain at rest by reason of the other’s renown, and seeing no way to sow discord among the Fathers, he set himself to spread abroad sinister reports among the commons; throwing out, among other charges, that the treasure collected to be given to the Gauls, but which, afterwards, was withheld, had been embezzled by certain citizens, and if recovered might be turned to public uses in relieving the people from taxes or from private debts. These assertions so prevailed with the commons that they began to hold meetings and to raise what tumults they liked throughout the city. But this displeasing the senate, and the matter appearing to them grave and dangerous, they appointed a dictator to inquire into it, and to restrain the attacks of Manlius. The dictator, forthwith, caused Manlius to be cited before him; and these two were thus brought face to face in the presence of the whole city, the dictator surrounded by the nobles, and Manlius by the commons. The latter, being desired to say with whom the treasure of which he had spoken was to be found, since the senate were as anxious to know this as the commons, made no direct reply, but answered evasively that it was needless to tell them what they already knew. Whereupon the dictator ordered him to prison.
 
+In this passage we are taught how hateful a thing is calumny in all free States, as, indeed, in every society, and how we must neglect no means which may serve to check it. And there can be no more effectual means for checking calumny than by affording ample facilities for impeachment, which is as useful in a commonwealth as the other is pernicious. And between them there is this difference, that calumny needs neither witness, nor circumstantial proof to establish it, so that any man may be calumniated by any other; but not impeached; since impeachment demands that there be substantive charges made, and trustworthy evidence to support them. Again, it is before the magistrates, the people, or the courts of justice that men are impeached; but in the streets and market places that they are calumniated. Calumny, therefore, is most rife in that State wherein impeachment is least practised, and the laws least favour it. For which reasons the legislator should so shape the laws of his State that it shall be possible therein to impeach any of its citizens without fear or favour; and, after duly providing for this, should visit calumniators with the sharpest punishments. Those punished will have no cause to complain, since it was in their power to have impeached openly where they have secretly calumniated. Where this is not seen to, grave disorders will always ensue. For calumnies sting without disabling; and those who are stung being more moved by hatred of their detractors than by fear of the things they say against them, seek revenge.
 
-I have said before that a bad citizen cannot work grave mischief in a
-commonwealth which has not become corrupted. This opinion is not only
-supported by the arguments already advanced, but is further confirmed
-by the examples of Spurius Cassius and Manlius Capitolinus. For
-Spurius, being ambitious, and desiring to obtain extraordinary
-authority in Rome, and to win over the people by loading them with
-benefits (as, for instance, by selling them those lands which the
-Romans had taken from the Hernici,) his designs were seen through by
-the senate, and laid him under such suspicion, that when in haranguing
-the people he offered them the money realized by the sale of the grain
-brought from Sicily at the public expense, they would have none of it,
-believing that he offered it as the price of their freedom. Now, had
-the people been corrupted, they would not have refused this bribe, but
-would have opened rather than closed the way to the tyranny.
+This matter, as we have said, was well arranged for in Rome, but has always been badly regulated in our city of Florence. And as the Roman ordinances with regard to it were productive of much good, so the want of them in Florence has bred much mischief. For any one reading the history of our city may perceive, how many calumnies have at all times been aimed against those of its citizens who have taken a leading part in its affairs. Thus, of one it would be said that he had plundered the public treasury, of another, that he had failed in some enterprise because he had been bribed; of a third, that this or the other disaster had originated in his ambition. Hence hatred sprung up on every side, and hatred growing to division, these led to factions, and these again to ruin. But had there existed in Florence some procedure whereby citizens might have been impeached, and calumniators punished, numberless disorders which have taken there would have been prevented. For citizens who were impeached, whether condemned or acquitted, would have had no power to injure the State; and they would have been impeached far seldomer than they have been calumniated; for calumny, as I have said already, is an easier matter than impeachment.
 
-The example of Manlius is still more striking. For in his case we see
-what excellent gifts both of mind and body, and what splendid services
-to his country were afterwards cancelled by that shameful eagerness to
-reign which we find bred in him by his jealousy of the honours paid
-Camillus. For so darkened did his mind become, that without reflecting
-what were the institutions to which Rome was accustomed, or testing the
-material he had to work on, when he would have seen that it was still
-unfit to be moulded to evil ends, he set himself to stir up tumults
-against the senate and against the laws of his country.
+Some, indeed, have made use of calumny as a means for raising themselves to power, and have found their advantage in traducing eminent citizens who withstood their designs; for by taking the part of the people, and confirming them in their ill-opinion of these great men, they made them their friends. Of this, though I could give many instances, I shall content myself with one. At the siege of Lucca the Florentine army was commanded by Messer Giovanni Guicciardini, as its commissary, through whose bad generalship or ill-fortune the town was not taken. But whatever the cause of this failure, Messer Giovanni had the blame; and the rumour ran that he had been bribed by the people of Lucca. Which calumny being fostered by his enemies, brought Messer Giovanni to very verge of despair; and though to clear himself he would willingly have given himself up to the Captain of Justice he found he could not, there being no provision in the laws of the republic which allowed of his doing so. Hence arose the bitterest hostility between the friends of Messer Giovanni, who were mostly of the old nobility (_grandi_), and those who sought to reform the government of Florence; and from this and the like causes, the affair grew to such dimensions as to bring about the downfall of our republic.
 
-And herein we recognize the excellence of this city of Rome, and of the
-materials whereof it was composed. For although the nobles were wont to
-stand up stoutly for one another, not one of them stirred to succour
-Manlius, and not one of his kinsfolk made any effort on his behalf, so
-that although it was customary, in the case of other accused persons,
-for their friends to put on black and sordid raiment, with all the
-other outward signs of grief, in order to excite pity for the accused,
-none was seen to do any of these things for Manlius. Even the tribunes
-of the people, though constantly ready to promote whatever courses
-seemed to favour the popular cause, and the more vehemently the more
-they seemed to make against the nobles, in this instance sided with the
-nobles to put down the common enemy. Nay the very people themselves,
-keenly alive to their own interests, and well disposed towards any
-attempt to damage the nobles, though they showed Manlius many proofs of
-their regard, nevertheless, when he was cited by the tribunes to appear
-before them and submit his cause for their decision, assumed the part
-of judges and not of defenders, and without scruple or hesitation
-sentenced him to die. Wherefore, I think, that there is no example in
-the whole Roman history which serves so well as this to demonstrate the
-virtues of all ranks in that republic. For not a man in the whole city
-bestirred himself to shield a citizen endowed with every great quality,
-and who, both publicly and privately, had done so much that deserved
-praise. But in all, the love of country outweighed every other thought,
-and all looked less to his past deserts than to the dangers which his
-present conduct threatened; from which to relieve themselves they put
-him to death. “_Such_,” says Livius, “_was the fate of a man worthy our
-admiration had he not been born in a free State_.”
-
-And here two points should be noted. The first, that glory is to be
-sought by different methods in a corrupt city, and in one which still
-preserves its freedom. The second, which hardly differs from the first,
-that in their actions, and especially in matters of moment, men must
-have regard to times and circumstances and adapt themselves thereto.
-For those persons who from an unwise choice, or from natural
-inclination, run counter to the times will for the most part live
-unhappily, and find all they undertake issue in failure; whereas those
-who accommodate themselves to the times are fortunate and successful.
-And from the passage cited we may plainly infer, that had Manlius lived
-in the days of Marius and Sylla, when the body of the State had become
-corrupted, so that he could have impressed it with the stamp of his
-ambition, he might have had the same success as they had, and as those
-others had who after them aspired to absolute power; and, conversely,
-that if Sylla and Marius had lived in the days of Manlius, they must
-have broken down at the very beginning of their attempts.
-
-For one man, by mischievous arts and measures, may easily prepare the
-ground for the universal corruption of a city; but no one man in his
-lifetime can carry that corruption so far, as himself to reap the
-harvest; or granting that one man’s life might be long enough for this
-purpose, it would be impossible for him, having regard to the ordinary
-habits of men, who grow impatient and cannot long forego the
-gratification of their desires, to wait until the corruption was
-complete. Moreover, men deceive themselves in respect of their own
-affairs, and most of all in respect of those on which they are most
-bent; so that either from impatience or from self-deception, they rush
-upon undertakings for which the time is not ripe, and so come to an ill
-end. Wherefore to obtain absolute authority in a commonwealth and to
-destroy its liberties, you must find the body of the State already
-corrupted, and corrupted by a gradual wasting continued from generation
-to generation; which, indeed, takes place necessarily, unless, as has
-been already explained, the State be often reinforced by good examples,
-or brought back to its first beginnings by wise laws.
-
-Manlius, therefore, would have been a rare and renowned man had he been
-born in a corrupt city; and from his example we see that citizens
-seeking to introduce changes in the form of their government, whether
-in favour of liberty or despotism, ought to consider what materials
-they have to deal with, and then judge of the difficulty of their task.
-For it is no less arduous and dangerous to attempt to free a people
-disposed to live in servitude, than to enslave a people who desire to
-live free.
-
-And because it has been said above, that in their actions men must take
-into account the character of the times in which they live, and guide
-themselves accordingly, I shall treat this point more fully in the
-following Chapter.
-
-
-
-
+Manlius Capitolinus, then, was a calumniator, not an accuser; and in their treatment of him the Romans showed how calumniators should be dealt with; by which I mean, that they should be forced to become accusers; and if their accusation be proved true, should be rewarded, or at least not punished, but if proved false should be punished as Manlius was.

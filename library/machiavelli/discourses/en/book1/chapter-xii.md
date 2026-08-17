@@ -1,127 +1,13 @@
-# CHAPTER XII —_A prudent Captain will do what he can to make it
+# CHAPTER XII.—That it is of much moment to make account of Religion; and that Italy, through the Roman Church, being wanting therein, has been ruined.
 
-CHAPTER XII.—_A prudent Captain will do what he can to make it
-necessary for his own Soldiers to fight, and to relieve his Enemy from
-that necessity._
+Princes and commonwealths that would save themselves from growing corrupted, should before all things keep uncorrupted the rites and ceremonies of religion, and always hold them in reverence; since we can have no surer sign of the decay of a province than to see Divine worship held therein in contempt. This is easily understood when it is seen on what foundation that religion rests in which a man is born. For every religion has its root in certain fundamental ordinances peculiar to itself.
 
+The religion of the Gentiles had its beginning in the responses of the oracles and in the prognostics of the augurs and soothsayers. All their other ceremonies and observances depended upon these; because men naturally believed that the God who could forecast their future weal or woe, could also bring them to pass. Wherefore the temples, the prayers, the sacrifices, and all the other rites of their worship, had their origin in this, that the oracles of Delos, of Dodona, and others celebrated in antiquity, held the world admiring and devout. But, afterwards, when these oracles began to shape their answers to suit the interests of powerful men, and their impostures to be seen through by the multitude, men grew incredulous and ready to overturn every sacred institution. For which reason, the rulers of kingdoms and commonwealths should maintain the foundations of the faith which they hold; since thus it will be easy for them to keep their country religious, and, consequently, virtuous and united. To which end they should countenance and further whatsoever tells in favour of religion, even should they think it untrue; and the wiser they are, and the better they are acquainted with natural causes, the more ought they to do so. It is from this course having been followed by the wise, that the miracles celebrated even in false religions, have come to be held in repute; for from whatever source they spring, discreet men will extol them, whose authority afterwards gives them currency everywhere.
 
-Elsewhere I have noted how greatly men are governed in what they do by
-Necessity, and how much of their renown is due to her guidance, so that
-it has even been said by some philosophers, that the hands and tongues
-of men, the two noblest instruments of their fame, would never have
-worked to perfection, nor have brought their labours to that pitch of
-excellence we see them to have reached, had they not been impelled by
-this cause. The captains of antiquity, therefore, knowing the virtues
-of this necessity, and seeing the steadfast courage which it gave their
-soldiers in battle, spared no effort to bring their armies under its
-influence, while using all their address to loosen its hold upon their
-enemies. For which reason, they would often leave open to an adversary
-some way which they might have closed, and close against their own men
-some way they might have left open.
+These miracles were common enough in Rome, and among others this was believed, that when the Roman soldiers were sacking the city of Veii, certain of them entered the temple of Juno and spoke to the statue of the goddess, saying, “_Wilt thou come with us to Rome?_” when to some it seemed that she inclined her head in assent, and to others that they heard her answer, “_Yea_.” For these men being filled with religious awe (which Titus Livius shows us by the circumstance that, in entering the temple, they entered devoutly, reverently, and without tumult), persuaded themselves they heard that answer to their question, which, perhaps, they had formed beforehand in their minds. But their faith and belief were wholly approved of and confirmed by Camillus and by the other chief men of the city.
 
-Whosoever, therefore, would have a city defend itself stubbornly, or an
-army fight resolutely in the field, must before all things endeavour to
-impress the minds of those whom he commands with the belief that no
-other course is open to them. In like manner a prudent captain who
-undertakes the attack of a city, will measure the ease or difficulty of
-his enterprise, by knowing and considering the nature of the necessity
-which compels the inhabitants to defend it; and where he finds that
-necessity to be strong, he may infer that his task will be difficult,
-but if otherwise, that it will be easy.
+Had religion been maintained among the princes of Christendom on the footing on which it was established by its Founder, the Christian States and republics had been far more united and far more prosperous than they now are; nor can we have surer proof of its decay than in witnessing how those countries which are the nearest neighbours of the Roman Church, the head of our faith, have less devoutness than any others; so that any one who considers its earliest beginnings and observes how widely different is its present practice, might well believe its ruin or its chastisement to be close at hand.
 
-And hence it happens that cities are harder to be recovered after a
-revolt than to be taken for the first time. Because on a first attack,
-having no occasion to fear punishment, since they have given no ground
-of offence, they readily surrender; but when they have revolted, they
-know that they have given ground of offence, and, fearing punishment,
-are not so easily brought under. A like stubbornness grows from the
-natural hostility with which princes or republics who are neighbours
-regard one another; which again is caused by the desire to dominate
-over those who live near, or from jealousy of their power. This is more
-particularly the case with republics, as in Tuscany for example; for
-contention and rivalry have always made, and always will make it
-extremely hard for one republic to bring another into subjection. And
-for this reason any one who considers attentively who are the
-neighbours of Florence, and who of Venice, will not marvel so much as
-some have done, that Florence should have spent more than Venice on her
-wars and gained less; since this results entirely from the Venetians
-finding their neighbouring towns less obstinate in their resistance
-than the Florentines theirs. For all the towns in the neighbourhood of
-Venice have been used to live under princes and not in freedom; and
-those who are used to servitude commonly think little of changing
-masters, nay are often eager for the change. In this way Venice, though
-she has had more powerful neighbours than Florence, has been able, from
-finding their towns less stubborn, to subdue them more easily than the
-latter, surrounded exclusively by free cities, has had it in her power
-to do.
+But since some are of opinion that the welfare of Italy depends upon the Church of Rome, I desire to put forward certain arguments which occur to me against that view, and shall adduce two very strong ones, which, to my mind, admit of no answer. The first is, that, through the ill example of the Roman Court, the country has lost all religious feeling and devoutness, a loss which draws after it infinite mischiefs and disorders; for as the presence of religion implies every excellence, so the contrary is involved in its absence. To the Church, therefore, and to the priests, we Italians owe this first debt, that through them we have become wicked and irreligious. And a still greater debt we owe them for what is the immediate cause of our ruin, namely, that by the Church our country is kept divided. For no country was ever united or prosperous which did not yield obedience to some one prince or commonwealth, as has been the case with France and Spain. And the Church is the sole cause why Italy stands on a different footing, and is subject to no one king or commonwealth. For though she holds here her seat, and exerts her temporal authority, she has never yet gained strength and courage to seize upon the entire country, or make herself supreme; yet never has been so weak that when in fear of losing her temporal dominion, she could not call in some foreign potentate to aid her against any Italian State by which she was overmatched. Of which we find many instances, both in early times, as when by the intervention of Charles the Great she drove the Lombards, who had made themselves masters of nearly the whole country, out of Italy; and also in recent times, as when, with the help of France, she first stripped the Venetians of their territories, and then, with the help of the Swiss, expelled the French.
 
-But, to return to the matter in hand, the captain who attacks a town
-should use what care he can, not to drive the defenders to extremities,
-lest he render them stubborn; but when they fear punishment should
-promise them pardon, and when they fear for their freedom should assure
-them that he has no designs against the common welfare, but only
-against a few ambitious men in their city; for such assurances have
-often smoothed the way to the surrender of towns. And although pretexts
-of this sort are easily seen through, especially by the wise, the mass
-of the people are often beguiled by them, because desiring present
-tranquillity, they shut their eyes to the snares hidden behind these
-specious promises. By means such as these, therefore, cities
-innumerable have been brought into subjection, as recently was the case
-with Florence. The ruin of Crassus and his army was similarly caused:
-for although he himself saw through the empty promises of the
-Parthians, as meant only to blind the Roman soldiers to the necessity
-of defending themselves, yet he could not keep his men steadfast, they,
-as we clearly gather in reading the life of this captain, being
-deceived by the offers of peace held out to them by their enemies.
-
-On the other hand, when the Samnites, who, at the instance of a few
-ambitious men, and in violation of the terms of the truce made with
-them, had overrun and pillaged lands belonging to the allies of Rome,
-afterwards sent envoys to Rome to implore peace, offering to restore
-whatever they had taken, and to surrender the authors of these injuries
-and outrages as prisoners, and these offers were rejected by the
-Romans, and the envoys returned to Samnium bringing with them no hope
-of an adjustment, Claudius Pontius, who then commanded the army of the
-Samnites, showed them in a remarkable speech, that the Romans desired
-war at all hazards, and declared that, although for the sake of his
-country he wished for peace, necessity constrained him to prepare for
-war; telling them “_that was a just war which could not be escaped, and
-those arms sacred in which lay their only hopes._” And building on this
-necessity, he raised in the minds of his soldiers a confident
-expectation of success. That I may not have to revert to this matter
-again, it will be convenient to notice here those examples from Roman
-history which most merit attention. When Caius Manilius was in command
-of the legions encamped against Veii, a division of the Veientine army
-having got within the Roman intrenchments, Manilius ran forward with a
-company of his men to defend them, and, to prevent the escape of the
-Veientines, guarded all the approaches to the camp. The Veientines
-finding themselves thus shut in, began to fight with such fury that
-they slew Manilius, and would have destroyed all the rest of the Roman
-army, had not the prudence of one of the tribunes opened a way for the
-Veientines to retreat. Here we see that so long as necessity compelled,
-the Veientines fought most fiercely, but on finding a path opened for
-escape, preferred flight to combat. On another occasion when the
-Volscians and Equians passed with their armies across the Roman
-frontier, the consuls were sent out to oppose them, and an engagement
-ensued. It so happened that when the combat was at its height, the army
-of the Volscians, commanded by Vectius Mescius, suddenly found
-themselves shut in between their own camp, which a division of the
-Romans had occupied, and the body of the Roman army; when seeing that
-they must either perish or cut a way for themselves with their swords,
-Vectius said to them, “_Come on, my men, here is no wall or rampart to
-be scaled: we fight man with man; in valour we are their equals, and
-necessity, that last and mightiest weapon, gives us the advantage._”
-Here, then, necessity is spoken of by Titus Livius as _the last and
-mightiest weapon_.
-
-Camillus, the wisest and most prudent of all the Roman commanders, when
-he had got within the town of Veii with his army, to make its surrender
-easier and not to drive its inhabitants to desperation, called out to
-his men, so that the Veientines might hear, to spare all whom they
-found unarmed. Whereupon the defenders throwing away their weapons, the
-town was taken almost without bloodshed. And this device was afterwards
-followed by many other captains.
-
-
-
-
+The Church, therefore, never being powerful enough herself to take possession of the entire country, while, at the same time, preventing any one else from doing so, has made it impossible to bring Italy under one head; and has been the cause of her always living subject to many princes or rulers, by whom she has been brought to such division and weakness as to have become a prey, not to Barbarian kings only, but to any who have thought fit to attack her. For this, I say, we Italians have none to thank but the Church. And were any man powerful enough to transplant the Court of Rome, with all the authority it now wields over the rest of Italy, into the territories of the Swiss (the only people who at this day, both as regards religion and military discipline, live like the ancients,) he would have clear proof of the truth of what I affirm, and would find that the corrupt manners of that Court had, in a little while, wrought greater mischief in these territories than any other disaster which could ever befall them.

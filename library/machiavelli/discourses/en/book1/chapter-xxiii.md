@@ -1,43 +1,7 @@
-# CHAPTER XXIII —_Why Camillus was banished from Rome._
+# CHAPTER XXIII.—_That we should never hazard our whole Fortunes where we put not forth our entire Strength; for which reason to guard a Defile is often hurtful_.
 
-CHAPTER XXIII.—_Why Camillus was banished from Rome._
+It was never judged a prudent course to peril your whole fortunes where you put not forth your whole strength; as may happen in more ways than one. One of these ways was that taken by Tullus and Metius, when each staked the existence of his country and the credit of his army on the valour and good fortune of three only of his soldiers, that being an utterly insignificant fraction of the force at his disposal. For neither of these kings reflected that all the labours of their predecessors in framing such institutions for their States, as might, with the aid of the citizens themselves, maintain them long in freedom, were rendered futile, when the power to ruin all was left in the hands of so small a number. No rasher step, therefore, could have been taken, than was taken by these kings.
 
+A like risk is almost always incurred by those who, on the approach of an enemy, resolve to defend some place of strength, or to guard the defiles by which their country is entered. For unless room be found in this place of strength for almost all your army, the attempt to hold it will almost always prove hurtful. If you can find room, it will be right to defend your strong places; but if these be difficult of access, and you cannot there keep your entire force together, the effort to defend is mischievous. I come to this conclusion from observing the example of those who, although their territories be enclosed by mountains and precipices, have not, on being attacked by powerful enemies, attempted to fight on the mountains or in the defiles, but have advanced beyond them to meet their foes; or, if unwilling to advance, have awaited attack behind their mountains, on level and not on broken ground. The reason of which is, as I have above explained, that many men cannot be assembled in these strong places for their defence; partly because a large number of men cannot long subsist there, and partly because such places being narrow and confined, afford room for a few only; so that no enemy can there be withstood, who comes in force to the attack; which he can easily do, his design being to pass on and not to make a stay; whereas he who stands on the defensive cannot do so in force, because, from not knowing when the enemy may enter the confined and sterile tracts of which I speak, he may have to lodge himself there for a long time. But should you lose some pass which you had reckoned on holding, and on the defence of which your country and army have relied, there commonly follows such panic among your people and among the troops which remain to you, that you are vanquished without opportunity given for any display of valour, and lose everything without bringing all your resources into play.
 
-It has been shown above how methods like those of Valerius are hurtful
-to the citizen who employs them and to his country, while methods like
-those of Manlius are advantageous for a man’s country, though sometimes
-they be hurtful to the man himself. This is well seen in the example of
-Camillus, whose bearing more nearly resembled that of Manlius than that
-of Valerius, so that Titus Livius, in speaking of him, says, “_His
-virtues were at once hated and admired by his soldiers._” What gained
-him their admiration was his care for their safety, his prudence, his
-magnanimity, and the good order he maintained in conducting and
-commanding them. What made him hated was his being more stern to punish
-than bountiful to reward; and Livius instances the following
-circumstances as giving rise to this hatred. First, his having applied
-the money got by the sale of the goods of the Veientines to public
-purposes, and not divided it along with the rest of the spoils. Second,
-his having, on the occasion of his triumph, caused his chariot to be
-drawn by four white horses, seeking in his pride, men said, to make
-himself the equal of the sun god. And, third, his having vowed to
-Apollo a tenth of the Veientine plunder, which, if he was to fulfil his
-vow, he had to recover from his soldiers, into whose hands it had
-already come.
-
-Herein we may well and readily discern what causes tend to make a
-prince hateful to his people; the chief whereof is the depriving them
-of some advantage. And this is a matter of much importance. For when a
-man is deprived of what is in itself useful, he never forgets it, and
-every trifling occasion recalls it to his mind; and because such
-occasions recur daily, he is every day reminded of his loss. Another
-error which we are here taught to guard against, is the appearing
-haughty and proud, than which nothing is more distasteful to a people,
-and most of all to a free people; for although such pride and
-haughtiness do them no hurt, they nevertheless hold in detestation any
-who display these qualities. Every show of pride, therefore, a prince
-should shun as he would a rock, since to invite hatred without
-resulting advantage were utterly rash and futile.
-
-
-
-
+Every one has heard with what difficulty Hannibal crossed the Alps which divide France from Lombardy, and afterwards those which separate Lombardy from Tuscany. Nevertheless the Romans awaited him, in the first instance on the banks of the Ticino, in the second on the plain of Arezzo, preferring to be defeated on ground which at least gave them a chance of victory, to leading their army into mountain fastnesses where it was likely to be destroyed by the mere difficulties of the ground. And any who read history with attention will find, that very few capable commanders have attempted to hold passes of this nature, as well for the reasons already given, as because to close them all were impossible. For mountains, like plains, are traversed not only by well-known and frequented roads, but also by many by-ways, which, though unknown to strangers, are familiar to the people of the country, under whose guidance you may always, and in spite of any opposition, be easily conducted to whatever point you please. Of this we have a recent instance in the events of the year 1515. For when Francis I. of France resolved on invading Italy in order to recover the province of Lombardy, those hostile to his attempt looked mainly to the Swiss, who it was hoped would stop him in passing through their mountains. But this hope was disappointed by the event. For leaving on one side two or three defiles which were guarded by the Swiss, the king advanced by another unknown pass, and was in Italy and upon his enemies before they knew. Whereupon they fled terror-stricken into Milan; while the whole population of Lombardy, finding themselves deceived in their expectation that the French would be detained in the mountains, went over to their side.

@@ -1,92 +1,11 @@
-# CHAPTER XVI —_That in Times of Difficulty true Worth is sought after;
+# CHAPTER XVI.—_That a People accustomed to live under a Prince, if by any accident it become free, can hardly preserve that Freedom._ Should a people accustomed to live under a prince by any accident
 
-CHAPTER XVI.—_That in Times of Difficulty true Worth is sought after;
-whereas in quiet Times it is not the most deserving, but those who are
-recommended by Wealth or Connection who are most in favour._
+Should a people accustomed to live under a prince by any accident become free, as did the Romans on the expulsion of the Tarquins, we know from numberless instances recorded in ancient history, how hard it will be for it to maintain that freedom. And this is no more than we might expect. For a people in such circumstances may be likened to the wild animal which, though destined by nature to roam at large in the woods, has been reared in the cage and in constant confinement and which, should it chance to be set free in the open country, being unused to find its own food, and unfamiliar with the coverts where it might lie concealed, falls a prey to the first who seeks to recapture it. Even thus it fares with the people which has been accustomed to be governed by others; since ignorant how to act by itself either for attack or defence, and neither knowing foreign princes nor being known of them, it is speedily brought back under the yoke, and often under a heavier yoke than that from which it has just freed its neck. These difficulties will be met with, even where the great body of the citizens has not become wholly corrupted; but where the corruption is complete, freedom, as shall presently be shown, is not merely fleeting but impossible. Wherefore my remarks are to be taken as applying to those States only wherein corruption has as yet made no great progress, and in which there is more that is sound than unsound.
 
+To the difficulties above noticed, another has to be added, which is, that a State in becoming free makes for itself bitter enemies but not warm friends. All become its bitter enemies who, drawing their support from the wealth of the tyrant, flourished under his government. For these men, when the causes which made them powerful are withdrawn, can no longer live contented, but are one and all impelled to attempt the restoration of the tyranny in hopes of regaining their former importance. On the other hand, as I have said, the State which becomes free does not gain for itself warm friends. For a free government bestows its honours and rewards in accordance with certain fixed rules, and on considerations of merit, without which none is honoured or rewarded. But when a man obtains only those honours or rewards which he seems to himself to deserve, he will never admit that he is under any obligation to those who bestow them. Moreover the common benefits that all derive from a free government, which consist in the power to enjoy what is our own, openly and undisturbed, in having to feel no anxiety for the honour of wife or child, nor any fear for personal safety, are hardly recognized by men while they still possess them, since none will ever confess obligation to him who merely refrains from injury. For these reasons, I repeat, a State which has recently become free, is likely to have bitter enemies and no warm friends.
 
-It always has happened and always will, that the great and admirable
-men of a republic are neglected in peaceful times; because at such
-seasons many citizens are found, who, envying the reputation these men
-have justly earned, seek to be regarded not merely as their equals but
-as their superiors. Touching this there is a notable passage in
-Thucydides, the Greek historian, where he tells how the republic of
-Athens coming victorious out of the Peloponessian war, wherein she had
-bridled the pride of Sparta, and brought almost the whole of Greece
-under her authority, was encouraged by the greatness of her renown to
-propose to herself the conquest of Sicily. In Athens this scheme was
-much debated, Alcibiades and certain others who had the public welfare
-very little in their thoughts, but who hoped that the enterprise, were
-they placed in command, might minister to their fame, recommending that
-it should be undertaken. Nicias, on the other hand, one of the best
-esteemed of the Athenian citizens, was against it, and in addressing
-the people, gave it as the strongest reason for trusting his advice,
-that in advising them not to engage in this war, he urged what was not
-for his own advantage; for he knew that while Athens remained at peace
-numberless citizens were ready to take precedence of him: whereas, were
-war declared, he was certain that none would rank before him or even be
-looked upon as his equal.
+Now, to meet these difficulties and their attendant disorders, there is no more potent, effectual, wholesome, and necessary remedy than _to slay the sons of Brutus_. They, as the historian tells us, were along with other young Romans led to conspire against their country, simply because the unusual privileges which they had enjoyed under the kings, were withheld under the consuls; so that to them it seemed as though the freedom of the people implied their servitude. Any one, therefore, who undertakes to control a people, either as their prince or as the head of a commonwealth, and does not make sure work with all who are hostile to his new institutions, founds a government which cannot last long. Undoubtedly those princes are to be reckoned unhappy, who, to secure their position, are forced to advance by unusual and irregular paths, and with the people for their enemies. For while he who has to deal with a few adversaries only, can easily and without much or serious difficulty secure himself, he who has an entire people against him can never feel safe and the greater the severity he uses the weaker his authority becomes; so that his best course is to strive to make the people his friends.
 
-Here we see that in tranquil times republics are subject to the
-infirmity of lightly esteeming their worthiest citizens. And this
-offends these persons for two reasons: first, because they are not
-given the place they deserve; and second, because they see unworthy men
-and of abilities inferior to their own, as much or more considered than
-they. Injustice such as this has caused the ruin of many republics. For
-citizens who find themselves undeservedly slighted, and perceive the
-cause to be that the times are tranquil and not troubled, will strive
-to change the times by stirring up wars hurtful to the public welfare.
-When I look for remedies for this state of things, I find two: first,
-to keep the citizens poor, so that wealth without worth shall corrupt
-neither them nor others; second, to be so prepared for war as always to
-be ready to make war; for then there will always be a need for worthy
-citizens, as was the case in Rome in early times. For as Rome
-constantly kept her armies in the field, there was constant opportunity
-for men to display their valour, nor was it possible to deprive a
-deserving man of his post and give it to another who was not deserving.
-Or if ever this were done by inadvertency, or by way of experiment,
-there forthwith resulted such disorder and danger, that the city at
-once retraced its steps and reverted to the true path. But other
-republics which are not regulated on the same plan, and make war only
-when driven to it by necessity, cannot help committing this injustice,
-nay, will constantly run into it, when, if the great citizen who finds
-himself slighted be vindictive, and have some credit and following in
-the city, disorder will always ensue. And though Rome escaped this
-danger for a time, she too, as has elsewhere been said, having no
-longer, after she had conquered Carthage and Antiochus, any fear of
-war, came to think she might commit her armies to whom she would,
-making less account of the valour of her captains than of those other
-qualities which gain favour with the people. Accordingly we find Paulus
-Emilius rejected oftener than once when he sought the consulship; nor,
-in fact, obtaining it until the Macedonian war broke out, which, being
-judged a formidable business, was by the voice of the whole city
-committed to his management. After the year 1494 our city of Florence
-was involved in a series of wars, in conducting which none of our
-citizens had any success until chance threw the command into the hands
-of one who showed us how an army should be led. This was Antonio
-Giacomini, and so long as there were dangerous wars on foot, all
-rivalry on the part of other citizens was suspended; and whenever a
-captain or commissary had to be appointed he was unopposed. But when a
-war came to be undertaken, as to the issue of which no misgivings were
-felt, and which promised both honour and preferment, so numerous were
-the competitors for command, that three commissaries having to be
-chosen to conduct the siege of Pisa, Antonio was left out; and though
-it cannot with certainty be shown that any harm resulted to our
-republic from his not having been sent on this enterprise, we may
-reasonably conjecture that such was indeed the case. For as the people
-of Pisa were then without means either for subsistence or defence, it
-may be believed that had Antonio been there he would have reduced them
-to such extremities as would have forced them to surrender at
-discretion to the Florentines. But Pisa being besieged by captains who
-knew neither how to blockade nor how to storm it, held out so long,
-that the Florentines, who should have reduced it by force, were obliged
-to buy its submission. Neglect like this might well move Antonio to
-resentment; and he must needs have been both very patient and very
-forgiving if he felt no desire to revenge himself when he could, by the
-ruin of the city or by injuries to individual citizens. But a republic
-should beware not to rouse such feelings, as I shall show in the
-following Chapter.
+But since these views may seem to conflict with what I have said above, treating there of a republic and here of a prince, that I may not have to return to the subject again, I will in this place discuss it briefly. Speaking, then of those princes who have become the tyrants of their country, I say that the prince who seeks to gain over an unfriendly people should first of all examine what it is the people really desire, and he will always find that they desire two things: first, to be revenged upon those who are the cause of their servitude; and second, to regain their freedom. The first of these desires the prince can gratify wholly, the second in part. As regards the former, we have an instance exactly in point. Clearchus, tyrant of Heraclea, being in exile, it so happened that on a feud arising between the commons and the nobles of that city, the latter, perceiving they were weaker than their adversaries, began to look with favour on Clearchus, and conspiring with him, in opposition to the popular voice recalled him to Heraclea and deprived the people of their freedom. Clearchus finding himself thus placed between the arrogance of the nobles, whom he could in no way either satisfy or correct, and the fury of the people, who could not put up with the loss of their freedom, resolved to rid himself at a stroke from the harassment of the nobles and recommend himself to the people. Wherefore, watching his opportunity, he caused all the nobles to be put to death, and thus, to the extreme delight of the people, satisfied one of those desires by which they are possessed, namely, the desire for vengeance.
 
-
-
-
+As for the other desire of the people, namely, to recover their freedom, the prince, since he never can content them in this, should examine what the causes are which make them long to be free; and he will find a very few of them desiring freedom that they may obtain power, but all the rest, whose number is countless, only desiring it that they may live securely. For in all republics, whatever the form of their government, barely forty or fifty citizens have any place in the direction of affairs; who, from their number being so small, can easily be reckoned with, either by making away with them, or by allowing them such a share of honours as, looking to their position, may reasonably content them. All those others whose sole aim it is to live safely, are well contented where the prince enacts such laws and ordinances as provide for the general security, while they establish his own authority; and when he does this, and the people see that nothing induces him to violate these laws, they soon begin to live happily and without anxiety. Of this we have an example in the kingdom of France, which enjoys perfect security from this cause alone, that its kings are bound to compliance with an infinity of laws upon which the well-being of the whole people depends. And he who gave this State its constitution allowed its kings to do as they pleased as regards arms and money; but provided that as regards everything else they should not interfere save as the laws might direct. Those rulers, therefore, who omit to provide sufficiently for the safety of their government at the outset, must, like the Romans, do so on the first occasion which offers; and whoever lets the occasion slip, will repent too late of not having acted as he should. The Romans, however, being still uncorrupted at the time when they recovered their freedom, were able, after slaying the sons of Brutus and getting rid of the Tarquins, to maintain it with all those safeguards and remedies which we have elsewhere considered. But had they already become corrupted, no remedy could have been found, either in Rome or out of it, by which their freedom could have been secured; as I shall show in the following Chapter.

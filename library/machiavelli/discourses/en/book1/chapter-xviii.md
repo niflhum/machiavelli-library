@@ -1,96 +1,17 @@
-# CHAPTER XVIII —_That it is the highest Quality of a Captain to be able
+# CHAPTER XVIII.—_How a Free Government existing in a corrupt City may be preserved, or not existing may be created._ I think it neither out of place, nor inconsistent with what has been
 
-CHAPTER XVIII.—_That it is the highest Quality of a Captain to be able
-to forestall the designs of his Adversary._
+I think it neither out of place, nor inconsistent with what has been said above, to consider whether a free government existing in a corrupt city can be maintained, or, not existing, can be introduced. And on this head I say that it is very difficult to bring about either of these results, and next to impossible to lay down rules as to how it may be done; because the measures to be taken must vary with the degree of corruption which prevails.
 
+Nevertheless, since it is well to reason things out, I will not pass this matter by, but will assume, in the first place, the case of a very corrupt city, and then take the case of one in which corruption has reached a still greater height; but where corruption is universal, no laws or institutions will ever have force to restrain it. Because as good customs stand in need of good laws for their support, so laws, that they may be respected, stand in need of good customs. Moreover, the laws and institutions established in a republic at its beginning, when men were good, are no longer suitable when they have become bad; but while the laws of a city are altered to suit its circumstances, its institutions rarely or never change; whence it results that the introduction of new laws is of no avail, because the institutions, remaining unchanged, corrupt them.
 
-It was a saying of Epaminondas the Theban that nothing was so useful
-and necessary for a commander as to be able to see through the
-intentions and designs of his adversary. And because it is hard to come
-at this knowledge directly, the more credit is due to him who reaches
-it by conjecture. Yet sometimes it is easier to fathom an enemy’s
-designs than to construe his actions; and not so much those actions
-which are done at a distance from us, as those done in our presence and
-under our very eyes. For instance, it has often happened that when a
-battle has lasted till nightfall, the winner has believed himself the
-loser, and the loser has believed himself the winner and that this
-mistake has led him who made it to follow a course hurtful to himself.
-It was from a mistake of this sort, that Brutus and Cassius lost the
-battle of Philippi. For though Brutus was victorious with his wing of
-the army Cassius, whose wing was beaten, believed the entire army to be
-defeated, and under this belief gave way to despair and slew himself.
-So too, in our own days, in the battle fought by Francis, king of
-France, with the Swiss at Santa Cecilia in Lombardy, when night fell,
-those of the Swiss who remained unbroken, not knowing that the rest had
-been routed and slain, thought they had the victory; and so believing
-would not retreat, but, remaining on the field, renewed the combat the
-following morning to their great disadvantage. Nor were they the only
-sufferers from their mistake, since the armies of the Pope and of Spain
-were also misled by it, and well-nigh brought to destruction. For on
-the false report of a victory they crossed the Po, and had they only
-advanced a little further must have been made prisoners by the
-victorious French.
+And to make this plainer, I say that in Rome it was first of all the institutions of the State, and next the laws as enforced by the magistrates, which kept the citizens under control. The institutions of the State consisted in the authority of the people, the senate, the tribunes, and the consuls; in the methods of choosing and appointing magistrates; and in the arrangements for passing laws. These institutions changed little, if at all, with circumstances. But the laws by which the people were controlled, as for instance the law relating to adultery, the sumptuary laws, the law as to canvassing at elections, and many others, were altered as the citizens grew more and more corrupted. Hence, the institutions of the State remaining the same although from the corruption of the people no longer suitable, amendments in the laws could not keep men good, though they might have proved very useful if at the time when they were made the institutions had likewise been reformed.
 
-An instance is recorded of a like mistake having been made in the camps
-both of the Romans and of the Equians. For the Consul Sempronius being
-in command against the Equians, and giving the enemy battle, the
-engagement lasted with varying success till nightfall, when as both
-armies had suffered what was almost a defeat, neither returned to their
-camp, but each drew off to the neighboring hills where they thought
-they would be safer. The Romans separated into two divisions, one of
-which with the consul, the other with the centurion Tempanius by whose
-valour the army had that day been saved from utter rout. At daybreak
-the consul, without waiting for further tidings of the enemy, made
-straight for Rome; and the Equians, in like manner, withdrew to their
-own country. For as each supposed the other to be victorious, neither
-thought much of leaving their camp to be plundered by the enemy. It so
-chanced, however, that Tempanius, who was himself retreating with the
-second division of the Roman army, fell in with certain wounded
-Equians, from whom he learned that their commanders had fled,
-abandoning their camp; on hearing which, he at once returned to the
-Roman camp and secured it, and then, after sacking the camp of the
-Equians, went back victorious to Rome. His success, as we see, turned
-entirely on his being the first to be informed of the enemy’s
-condition. And here we are to note that it may often happen that both
-the one and the other of two opposed armies shall fall into the same
-disorder, and be reduced to the same straits; in which case, that which
-soonest detects the other’s distress is sure to come off best.
+That its original institutions are no longer adapted to a city that has become corrupted, is plainly seen in two matters of great moment, I mean in the appointment of magistrates and in the passing of laws. For the Roman people conferred the consulship and other great offices of their State on none save those who sought them; which was a good institution at first, because then none sought these offices save those who thought themselves worthy of them, and to be rejected was held disgraceful; so that, to be deemed worthy, all were on their best behaviour. But in a corrupted city this institution grew to be most mischievous. For it was no longer those of greatest worth, but those who had most influence, who sought the magistracies; while all who were without influence, however deserving, refrained through fear. This untoward result was not reached all at once, but like other similar results, by gradual steps. For after subduing Africa and Asia, and reducing nearly the whole of Greece to submission, the Romans became perfectly assured of their freedom, and seemed to themselves no longer to have any enemy whom they had cause to fear. But this security and the weakness of their adversaries led them in conferring the consulship, no longer to look to merit, but only to favour, selecting for the office those who knew best how to pay court to them, not those who knew best how to vanquish their enemies. And afterwards, instead of selecting those who were best liked, they came to select those who had most influence; and in this way, from the imperfection of their institutions, good men came to be wholly excluded.
 
-I shall give an instance of this which occurred recently in our own
-country. In the year 1498, when the Florentines had a great army in the
-territory of Pisa and had closely invested the town, the Venetians, who
-had undertaken its protection, seeing no other way to save it, resolved
-to make a diversion in its favour by attacking the territories of the
-Florentines in another quarter. Wherefore, having assembled a strong
-force, they entered Tuscany by the Val di Lamona, and seizing on the
-village of Marradi, besieged the stronghold of Castiglione which stands
-on the height above it. Getting word of this, the Florentines sought to
-relieve Marradi, without weakening the army which lay round Pisa. They
-accordingly raised a new levy of foot-soldiers, and equipped a fresh
-squadron of horse, which they despatched to Marradi under the joint
-command of Jacopo IV. d’Appiano, lord of Piombino, and Count Rinuccio
-of Marciano. These troops taking up their position on the hill above
-Marradi, the Venetians withdrew from the investment of Castiglione and
-lodged themselves in the village. But when the two armies had
-confronted one another for several days, both began to suffer sorely
-from want of victuals and other necessaries, and neither of them daring
-to attack the other, or knowing to what extremities the other was
-reduced, both simultaneously resolved to strike their camps the
-following morning, and to retreat, the Venetians towards Berzighella
-and Faenza, the Florentines towards Casaglia and the Mugello. But at
-daybreak, when both armies had begun to remove their baggage, it so
-happened that an old woman, whose years and poverty permitted her to
-pass unnoticed, leaving the village of Marradi, came to the Florentine
-camp, where were certain of her kinsfolk whom she desired to visit.
-Learning from her that the Venetians were in retreat, the Florentine
-commanders took courage, and changing their plan, went in pursuit of
-the enemy as though they had dislodged them, sending word to Florence
-that they had repulsed the Venetians and gained a victory. But in truth
-this victory was wholly due to their having notice of the enemy’s
-movements before the latter had notice of theirs. For had that notice
-been given to the Venetians first, it would have wrought against us the
-same results as it actually wrought for us.
+Again, as to making laws, any of the tribunes and certain others of the magistrates were entitled to submit laws to the people; but before these were passed it was open to every citizen to speak either for or against them. This was a good system so long as the citizens were good, since it is always well that every man should be able to propose what he thinks may be of use to his country, and that all should be allowed to express their views with regard to his proposal; so that the people, having heard all, may resolve on what is best. But when the people grew depraved, this became a very mischievous institution; for then it was only the powerful who proposed laws, and these not in the interest of public freedom but of their own authority; and because, through fear, none durst speak against the laws they proposed, the people were either deceived or forced into voting their own destruction.
 
+In order, therefore, that Rome after she had become corrupted might still preserve her freedom, it was necessary that, as in the course of events she had made new laws, so likewise she should frame new institutions, since different institutions and ordinances are needed in a corrupt State from those which suit a State which is not corrupted; for where the matter is wholly dissimilar, the form cannot be similar.
 
+But since old institutions must either be reformed all at once, as soon as they are seen to be no longer expedient, or else gradually, as the imperfection of each is recognized, I say that each of these two courses is all but impossible. For to effect a gradual reform requires a sagacious man who can discern mischief while it is still remote and in the germ. But it may well happen that no such person is found in a city; or that, if found, he is unable to persuade others of what he is himself persuaded. For men used to live in one way are loath to leave it for another, especially when they are not brought face to face with the evil against which they should guard, and only have it indicated to them by conjecture. And as for a sudden reform of institutions which are seen by all to be no longer good, I say that defects which are easily discerned are not easily corrected, because for their correction it is not enough to use ordinary means, these being in themselves insufficient; but recourse must be had to extraordinary means, such as violence and arms; and, as a preliminary, you must become prince of the city, and be able to deal with it at your pleasure. But since the restoration of a State to new political life presupposes a good man, and to become prince of a city by violence presupposes a bad man, it can, consequently, very seldom happen that, although the end be good, a good man will be found ready to become a prince by evil ways, or that a bad man having become a prince will be disposed to act virtuously, or think of turning to good account his ill-acquired authority.
 
-
+From all these causes comes the difficulty, or rather the impossibility, which a corrupted city finds in maintaining an existing free government, or in establishing a new one. So that had we to establish or maintain a government in that city, it would be necessary to give it a monarchical, rather than a popular form, in order that men too arrogant to be restrained by the laws, might in some measure be kept in check by a power almost absolute; since to attempt to make them good otherwise would be a very cruel or a wholly futile endeavour. This, as I have said, was the method followed by Cleomenes; and if he, that he might stand alone, put to death the Ephori; and if Romulus, with a like object, put to death his brother and Titus Tatius the Sabine, and if both afterwards made good use of the authority they thus acquired, it is nevertheless to be remembered that it was because neither Cleomenes nor Romulus had to deal with so corrupt a people as that of which I am now speaking, that they were able to effect their ends and to give a fair colour to their acts.

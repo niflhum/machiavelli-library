@@ -1,60 +1,7 @@
-# CHAPTER XXVIII —_That a Republic must keep an eye on what its Citizens
+# CHAPTER XXVIII.—_Whence it came that the Romans were less ungrateful to their Citizens than were the Athenians_. In the histories of all republics we meet with instances of some sort
 
-CHAPTER XXVIII.—_That a Republic must keep an eye on what its Citizens
-are about; since often the seeds of a Tyranny lie hidden under a
-semblance of generous deeds._
+In the histories of all republics we meet with instances of some sort of ingratitude to their great citizens, but fewer in the history of Rome than of Athens, or indeed of any other republic. Searching for the cause of this, I am persuaded that, so far as regards Rome and Athens, it was due to the Romans having had less occasion than the Athenians to look upon their fellow-citizens with suspicion. For, from the expulsion of her kings down to the times of Sylla and Marius, the liberty of Rome was never subverted by any one of her citizens; so that there never was in that city grave cause for distrusting any man, and in consequence making him the victim of inconsiderate injustice. The reverse was notoriously the case with Athens; for that city, having, at a time when she was most flourishing, been deprived of her freedom by Pisistratus under a false show of good-will, remembering, after she regained her liberty, her former bondage and all the wrongs she had endured, became the relentless chastiser, not of offences only on the part of her citizens, but even of the shadow of an offence. Hence the banishment and death of so many excellent men, and hence the law of ostracism, and all those other violent measures which from time to time during the history of that city were directed against her foremost citizens. For this is most true which is asserted by the writers on civil government, that a people which has recovered its freedom, bites more fiercely than one which has always preserved it.
 
+And any who shall weigh well what has been said, will not condemn Athens in this matter, nor commend Rome, but refer all to the necessity arising out of the different conditions prevailing in the two States. For careful reflection will show that had Rome been deprived of her freedom as Athens was, she would not have been a whit more tender to her citizens. This we may reasonably infer from remarking what, after the expulsion of the kings, befell Collatinus and Publius Valerius; the former of whom, though he had taken part in the liberation of Rome, was sent into exile for no other reason than that he bore the name of Tarquin; while the sole ground of suspicion against the latter, and what almost led to his banishment, was his having built a house upon the Cælian hill. Seeing how harsh and suspicious Rome was in these two instances, we may surmise that she would have shown the same ingratitude as Athens, had she, like Athens, been wronged by her citizens at an early stage of her growth, and before she had attained to the fulness of her strength.
 
-The granaries of Rome not sufficing to meet a famine with which the
-city was visited, a certain Spurius Melius, a very wealthy citizen for
-these days, privately laid in a supply of corn wherewith to feed the
-people at his own expense; gaining thereby such general favour with the
-commons, that the senate, apprehending that his bounty might have
-dangerous consequences, in order to crush him before he grew too
-powerful, appointed a dictator to deal with him and caused him to be
-put to death.
-
-Here we have to note that actions which seem good in themselves and
-unlikely to occasion harm to any one, very often become hurtful, nay,
-unless corrected in time, most dangerous for a republic. And to treat
-the matter with greater fulness, I say, that while a republic can never
-maintain itself long, or manage its affairs to advantage, without
-citizens of good reputation, on the other hand the credit enjoyed by
-particular citizens often leads to the establishment of a tyranny. For
-which reasons, and that things may take a safe course, it should be so
-arranged that a citizen shall have credit only for such behaviour as
-benefits, and not for such as injures the State and its liberties. We
-must therefore examine by what ways credit is acquired. These, briefly,
-are two, public or secret. Public, when a citizen gains a great name by
-advising well or by acting still better for the common advantage. To
-credit of this sort we should open a wide door, holding out rewards
-both for good counsels and for good actions, so that he who renders
-such services may be at once honoured and satisfied. Reputation
-acquired honestly and openly by such means as these can never be
-dangerous. But credit acquired by secret practices, which is the other
-method spoken of, is most perilous and prejudicial. Of such secret
-practices may be instanced, acts of kindness done to this or the other
-citizen in lending him money, in assisting him to marry his daughters,
-in defending him against the magistrates, and in conferring such other
-private favours as gain men devoted adherents, and encourage them after
-they have obtained such support, to corrupt the institutions of the
-State and to violate its laws.
-
-A well-governed republic, therefore, ought, as I have said, to throw
-wide the door to all who seek public favour by open courses, and to
-close it against any who would ingratiate themselves by underhand
-means. And this we find was done in Rome. For the Roman republic, as a
-reward to any citizen who served it well, ordained triumphs and all the
-other honours which it had to bestow; while against those who sought to
-aggrandize themselves by secret intrigues, it ordained accusations and
-impeachment; and when, from the people being blinded by a false show of
-benevolence, these proved insufficient, it provided for a dictator, who
-with regal authority might bring to bounds any who had strayed beyond
-them, as instanced in the case of Spurius Melius. And if conduct like
-his be ever suffered to pass unchastised, it may well be the ruin of a
-republic, for men when they have such examples set them are not easily
-led back into the right path.
-
-
-
-
+That I may not have to return to this question of ingratitude, I shall say all that remains to be said about it in my next Chapter.

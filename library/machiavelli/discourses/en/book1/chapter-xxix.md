@@ -1,54 +1,13 @@
-# CHAPTER XXIX —_That the Faults of a People are due to its Prince._
+# CHAPTER XXIX.—_Whether a People or a Prince is the more ungrateful._ In connection with what has been said above, it seems proper to consider whether more notable instances of ingratitude are supplied
 
-CHAPTER XXIX.—_That the Faults of a People are due to its Prince._
+In connection with what has been said above, it seems proper to consider whether more notable instances of ingratitude are supplied by princes or peoples. And, to go to the root of the matter, I affirm that this vice of ingratitude has its source either in avarice or in suspicion. For a prince or people when they have sent forth a captain on some important enterprise, by succeeding in which he earns a great name, are bound in return to reward him; and if moved by avarice and covetousness they fail to do so, or if, instead of rewarding, they wrong and disgrace him, they commit an error which is not only without excuse, but brings with it undying infamy. And, in fact, we find many princes who have sinned in this way, for the cause given by Cornelius Tacitus when he says, that “_men are readier to pay back injuries than benefits, since to requite a benefit is felt to be a burthen, to return an injury a gain_.”[3]
 
+[3] Proclivius est injuriæ quam beneficio vicem exsolvere, quia gratia oneri, ultio in quastu habetur. _Tacit. Hist._ iv. 2.
 
-Let no prince complain of the faults committed by a people under his
-control; since these must be ascribed either to his negligence, or to
-his being himself blemished by similar defects. And were any one to
-consider what peoples in our own times have been most given to robbery
-and other like offences, he would find that they have only copied their
-rulers, who have themselves been of a like nature. Romagna, before
-those lords who ruled it were driven out by Pope Alexander VI., was a
-nursery of all the worst crimes, the slightest occasion giving rise to
-wholesale rapine and murder. This resulted from the wickedness of these
-lords, and not, as they asserted, from the evil disposition of their
-subjects. For these princes being poor, yet choosing to live as though
-they were rich, were forced to resort to cruelties innumerable and
-practised in divers ways; and among other shameful devices contrived by
-them to extort money, they would pass laws prohibiting certain acts,
-and then be the first to give occasion for breaking them; nor would
-they chastise offenders until they saw many involved in the same
-offence; when they fell to punishing, not from any zeal for the laws
-which they had made, but out of greed to realize the penalty. Whence
-flowed many mischiefs, and more particularly this, that the people
-being impoverished, but not corrected, sought to make good their
-injuries at the expense of others weaker than themselves. And thus
-there sprang up all those evils spoken of above, whereof the prince is
-the true cause.
+When, however, reward is withheld, or, to speak more correctly, where offence is given, not from avarice but from suspicion, the prince or people may deserve some excuse; and we read of many instances of ingratitude proceeding from this cause. For the captain who by his valour has won new dominions for his prince, since while overcoming his enemies, he at the same time covers himself with glory and enriches his soldiers, must needs acquire such credit with his own followers, and with the enemy, and also with the subjects of his prince, as cannot be wholly agreeable to the master who sent him forth. And since men are by nature ambitious as well as jealous, and none loves to set a limit to his fortunes, the suspicion which at once lays hold of the prince when he sees his captain victorious, is sure to be inflamed by some arrogant act or word of the captain himself. So that the prince will be unable to think of anything but how to secure himself; and to this end will contrive how he may put his captain to death, or at any rate deprive him of the credit he has gained with the army and among the people; doing all he can to show that the victory was not won by his valour, but by good fortune, or by the cowardice of the enemy, or by the skill and prudence of those commanders who were with him at this or the other battle.
 
-The truth of what I say is confirmed by Titus Livius where he relates
-how the Roman envoys, who were conveying the spoils of the Veientines
-as an offering to Apollo, were seized and brought on shore by the
-corsairs of the Lipari islands in Sicily; when Timasitheus, the prince
-of these islands, on learning the nature of the offering, its
-destination, and by whom sent, though himself of Lipari, behaved as a
-Roman might, showing his people what sacrilege it would be to intercept
-such a gift, and speaking to such purpose that by general consent the
-envoys were suffered to proceed upon their voyage, taking all their
-possessions with them. With reference to which incident the historian
-observes: “_The multitude, who always take their colour from their
-ruler, were filled by Timasitheus with a religious awe._” And to like
-purport we find it said by Lorenzo de’ Medici:—
+After Vespasian, who was then in Judæa, had been proclaimed emperor by his army, Antonius Primus, who commanded another army in Illyria, adopted his cause, and marching into Italy against Vitellius who had been proclaimed emperor in Rome, courageously defeated two armies under that prince, and occupied Rome; so that Mutianus, who was sent thither by Vespasian, found everything done to his hand, and all difficulties surmounted by the valour of Antonius. But all the reward which Antonius had for his pains, was, that Mutianus forthwith deprived him of his command of the army, and by degrees diminished his authority in Rome till none was left him. Thereupon Antonius went to join Vespasian, who was still in Asia; by whom he was so coldly received and so little considered, that in despair he put himself to death. And of cases like this, history is full. Every man living at the present hour knows with what zeal and courage Gonsalvo of Cordova, while conducting the war in Naples against the French, conquered and subdued that kingdom for his master Ferdinand of Aragon; and how his services were requited by Ferdinand coming from Aragon to Naples, and first of all depriving him of the command of the army, afterwards of the fortresses, and finally carrying him back with him to Spain, where soon after he died in disgrace.
 
-“A prince’s acts his people imitate;
-For on their lord the eyes of all men wait.”[17]
+This jealousy, then, is so natural to princes, that they cannot guard themselves against it, nor show gratitude to those who serving under their standard have gained great victories and made great conquests on their behalf. And if it be impossible for princes to free their minds from such suspicions, there is nothing strange or surprising that a people should be unable to do so. For as a city living under free institutions has two ends always before it, namely to acquire liberty and to preserve it, it must of necessity be led by its excessive passion for liberty to make mistakes in the pursuit of both these objects. Of the mistakes it commits in the effort to acquire liberty, I shall speak, hereafter, in the proper place. Of mistakes committed in the endeavour to preserve liberty are to be noted, the injuring those citizens who ought to be rewarded, and the suspecting those who should be trusted. Now, although in a State which has grown corrupt these errors occasion great evils, and commonly lead to a tyranny, as happened in Rome when Cæsar took by force what ingratitude had denied him, they are nevertheless the cause of much good in the republic which has not been corrupted, since they prolong the duration of its free institutions, and make men, through fear of punishment, better and less ambitious. Of all peoples possessed of great power, the Romans, for the reasons I have given, have undoubtedly been the least ungrateful, since we have no other instance of their ingratitude to cite, save that of Scipio. For both Coriolanus and Camillus were banished on account of the wrongs which they inflicted on the commons; and though the former was not forgiven because he constantly retained ill will against the people, the latter was not only recalled, but for the rest of his life honoured as a prince. But the ingratitude shown towards Scipio arose from the suspicion wherewith the citizens came to regard him, which they had not felt in the case of the others, and which was occasioned by the greatness of the enemy whom he had overthrown, the fame he had won by prevailing in so dangerous and protracted a war, the suddenness of his victories, and, finally, the favour which his youth, together with his prudence and his other memorable qualities had gained for him. These qualities were, in truth, so remarkable that the very magistrates, not to speak of others, stood in awe of his authority, a circumstance displeasing to prudent citizens, as before unheard of in Rome. In short, his whole bearing and character were so much out of the common, that even the elder Cato, so celebrated for his austere virtue, was the first to declare against him, saying that no city could be deemed free which contained a citizen who was feared by the magistrates. And since, in this instance, the Romans followed the opinion of Cato, they merit that excuse which, as I have said already, should be extended to the prince or people who are ungrateful through suspicion.
 
-
- [17] E quel che fa il signer, fanno poi molti;
- Chè nel signer son tutti gli occhi volti.
-(_La Rappresentazione di San Giovanni e Paolo._)
-
-
-
-
+In conclusion it is to be said that while this vice of ingratitude has its origin either in avarice or in suspicion, commonwealths are rarely led into it by avarice, and far seldomer than princes by suspicion, having, as shall presently be shown, far less reason than princes for suspecting.

@@ -1,58 +1,7 @@
-# CHAPTER III —_That to preserve a newly acquired Freedom we must slay
+# CHAPTER III.—Of the Accidents which led in Rome to the creation of Tribunes of the People; whereby the Republic was made more perfect. They who lay the foundations of a State and furnish it with laws 
 
-CHAPTER III.—_That to preserve a newly acquired Freedom we must slay
-the Sons of Brutus._
+They who lay the foundations of a State and furnish it with laws must, as is shown by all who have treated of civil government, and by examples of which history is full, assume that ‘all men are bad, and will always, when they have free field, give loose to their evil inclinations; and that if these for a while remain hidden, it is owing to some secret cause, which, from our having no contrary experience, we do not recognize at once, but which is afterwards revealed by Time, of whom we speak as the father of all truth.
 
+In Rome, after the expulsion of the Tarquins, it seemed as though the closest union prevailed between the senate and the commons, and that the nobles, laying aside their natural arrogance, had learned so to sympathize with the people as to have become supportable by all, even of the humblest rank. This dissimulation remained undetected, and its causes concealed, while the Tarquins lived; for the nobles dreading the Tarquins, and fearing that the people, if they used them ill, might take part against them, treated them with kindness. But no sooner were the Tarquins got rid of, and the nobles thus relieved of their fears, when they began to spit forth against the commons all the venom which before they had kept in their breasts, offending and insulting them in every way they could; confirming what I have observed already, that men never behave well unless compelled, and that whenever they are free to act as they please, and are under no restraint everything falls at once into confusion and disorder. Wherefore it has been said that as poverty and hunger are needed to make men industrious, so laws are needed to make them good. When we do well without laws, laws are not needed; but when good customs are absent, laws are at once required.
 
-The severity used by Brutus in preserving for Rome the freedom he had
-won for her, was not less necessary than useful. The spectacle of a
-father sitting on the judgment, and not merely sentencing his own sons
-to death, but being himself present at their execution, affords an
-example rare in history. But those who study the records of ancient
-times will understand, that after a change in the form of a government,
-whether it be from a commonwealth to a tyranny or from a tyranny to a
-commonwealth, those who are hostile to the new order of things must
-always be visited with signal punishment. So that he who sets up as a
-tyrant and slays not Brutus, and he who creates a free government and
-slays not the sons of Brutus, can never maintain himself long. But
-since I have elsewhere treated of this matter at large, I shall merely
-refer to what has there been said concerning it, and shall cite here
-one instance only, happening in our own days, and memorable in the
-history of our country.
-
-I speak of Piero Soderini, who thought by his patience and goodness to
-overcome the very same temper which prompted the sons of Brutus to
-revert to the old government, and who failed in the endeavour. For
-although his sagacity should have taught him the necessity, while
-chance and the ambition of those who attacked him furnished him with
-the opportunity of making an end of them, he never could resolve to
-strike the blow; and not merely believed himself able to subdue
-disaffection by patience and kindness, and to mitigate the enmity of
-particular men by the rewards he held out to them, but also persuaded
-himself, and often declared in the presence of his friends, that he
-could not confront opposition openly, nor crush his adversaries,
-without assuming extraordinary powers and passing laws destructive of
-civil equality; which measures, although not afterward used by him for
-tyrannical ends, would so alarm the community, that after his death
-they would never again consent to appoint a Gonfalonier for life, an
-office which he judged it essential both to maintain and strengthen.
-Now although these scruples of his were wise and good, we ought never
-out of regard for what is good, to suffer an evil to run its course,
-since it may well happen that the evil will prevail over the good. And
-Piero should have believed that as his acts and intentions were to be
-judged by results, he might, if he lived and if fortune befriended him,
-have made it clear to all, that what he did was done to preserve his
-country, and not from personal ambition; and he might have so contrived
-matters that no successor of his could ever turn to bad ends the means
-which he had used for good ends. But he was misled by a preconceived
-opinion, and failed to understand that ill-will is not to be vanquished
-by time nor propitiated by favours. And, so, from not knowing how to
-resemble Brutus, he lost power, and fame, and was driven an exile from
-his country.
-
-That it is as hard a matter to preserve a princedom as it is to
-preserve a commonwealth, will be shown in the Chapter following.
-
-
-
-
+On the extinction of the Tarquins, therefore, the dread of whom had kept the nobles in check, some new safeguard had to be contrived, which should effect the same result as had been effected by the Tarquins while they lived. Accordingly, after much uproar and confusion, and much danger of violence ensuing between the commons and the nobles, to insure the safety of the former, tribunes were created, and were invested with such station and authority as always afterwards enabled them to stand between the people and the senate, and to resist the insolence of the nobles.
