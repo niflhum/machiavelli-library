@@ -1,0 +1,3 @@
+# Capitolo 1 — [Di quante ragioni sieno e’ principati, e in che modo si acquistino]
+
+Tutti li stati, tutti e' dominii che hanno avuto et hanno imperio sopra li uomini, sono stati e sono o repubbliche o principati. E' principati sono o ereditarii, de' quali el sangue del loro signore ne sia suto lungo tempo principe, o e' sono nuovi. E' nuovi, o sono nuovi tutti, come fu Milano a Francesco Sforza, o sono come membri aggiunti allo stato ereditario del principe che li acquista, come è el regno di Napoli al re di Spagna. Sono questi dominii cosí acquistati, o consueti a vivere sotto uno principe,o usi ad essere liberi; et acquistonsi, o con le armi d'altri o con le proprie, o per fortuna o per virtù.
