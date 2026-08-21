@@ -1,0 +1,30 @@
+# XVII. Zalimlik ve merhamet üstüne; hükümdar korkulan mı,
+
+XVII
+
+
+
+Zalimlik ve merhamet üstüne; hükümdar korkulan mı,
+
+
+
+yoksa sevilen bir kişi mi olmalı?
+
+
+1. Şimdi bir hükümdarda bulunması gereken öteki nitelikleri irdeleyelim. Bana göre, hükümdar zalim değil, merhametli biri olarak bilinmeyi istemelidir. Ama merhametini asla kötüye kullanmamalıdır. Cesare Borgia zalim biri olarak bilinirdi. Ne ki o zalimliği Romagna’yı ayağa kaldırdı, birleştirdi, barış getirdi ve insanların iktidara bağlılığını sağladı. İyi incelendiğinde onun Floransalılardan daha merhametli olduğu saptanacaktır, çünkü Floransalılar merhametli olacağız diye Pistoia’nın yakılıp yıkılmasına göz yummuşlardır. Hükümdar uyruğunu bir arada tutmak ve iktidara bağlılığını sağlamak için adının zalime çıkmasından asla gocunmamalıdır; çünkü kimi hükümdarlar, bir iki acımasız örnek girişimleriyle, katliam ve yağmalar doğuracak karışıklıklara merhametlerinden ötürü seyirci kalanlardan daha merhametli olduklarını göstermişlerdir. Karışıklıklar genellikle herkesin huzurunu kaçırırken, hükümdarın acımasızlığı ancak bazılarınkini kaçırır. Tüm hükümdarlar içinde, yeni hükümdarlıkların tehlikelerle dolu olması nedeniyle hükümdarının acımasızlığı kaçınılmazdır. Vergilius[79] Didone’nin[80] ağzından şunları söyler:
+
+Res dura, et regni novitas me talia cogunt
+
+Moliri, et late fines custode tueri.[81]
+
+Ama gene de hükümdar tehlikelerin varlığına kolayca inanmamalı ve eyleme de geçmemeli, ayrıca düş ürünü tehlikeler yaratıp gölgesinden de korkmamalıdır. İnsancı davranışıyla sakınganlığını dengeleyip kimi zaman acımasız, kimi zaman merhametli olmalı; ancak kendine çok güvenip umursamaz, aşırı güvensiz görünüp çekilmez biri olmamalıdır.
+
+2. Bu noktada şunu tartışmalıyız: Hükümdar korkulacak biri olmaktan çok sevilecek biri mi, yoksa tersi mi olmalı? Buna verilecek yanıt şudur: Hem öyle hem böyle. Ama ikisini bir arada bulundurmak zor olduğu için, ikisinden birisi olmadığında sevilecek biri olmaktansa korkulacak biri olmak yeğdir. Çünkü genel olarak insanlarla ilgili şu söylenebilir: İnsanlar nankör, değişken, içten pazarlıklı, riyakâr, korkak ve çıkarcıdırlar; iyilik yaptığın sürece yanından ayrılmazlar; gerekmediğinde sana kanlarını, canlarını, mallarını, mülklerini, dahası evlatlarını bağışlarlar. Oysa gerektiğinde hepsi arkasını döner. Her şeyini insanların sözlerine bağlayan ve başka hiçbir hazırlığı olmayan hükümdar batar. Ruh soyluluğu ve büyüklüğüyle değil de para ile elde edilen dostluklar satın alınmış dostluklardır, gereksinim duyulduğunda kullanılamaz. İnsanlar korkulan bir hükümdardan çok, sevilen bir hükümdara daha kolay zarar verirler; çünkü sevgi bir zorunluluk bağıdır ve insanlar doğaları gereği çıkarları söz konusu olduğunda o bağı rahatlıkla koparır atarlar; oysa korku bağı insanın hiç aklından çıkaramadığı ceza ve cezalandırılmak kaygısıyla örülmüştür.
+
+3. Hükümdar korku salmayı öyle ölçüler içinde yapmalı ki sevgi kazanamıyorsa da nefret de kazanmamalı; çünkü korkulacak biri olmakla nefret edilmeyecek biri olmak bir arada olabilir. Hükümdar, uyruğunun, yurttaşlarının malına, mülküne, karısına, kızına göz dikmezse nefret kazanmadan korku salabilir. Birinin kanına, canına kastettiğinde yeterli gerekçesi ve açık seçik bir nedeni olmalıdır. Ve özellikle başkasının malına, mülküne göz dikmemelidir, çünkü insanlar babalarının ölümünü kolaylıkla içlerine sindirebilirler, ama mal varlıklarından yoksun kalmalarını asla. Mala, mülke göz diken bir hükümdarın her zaman bir gerekçesi vardır; başkalarının sırtından geçinmeyi huy edinenler başkalarından yararlanmak için sözde neden bulabilirler. Can almak için gerekçe kolay kolay bulunmadığı gibi çok çabuk da unutulup gider.
+
+4. Ama hükümdarın ordularıyla birlikte olup ordunun başına geçtiğinde adının zalime çıkmasına hiç mi hiç aldırmaması gerekir. Eğer böyle bir sanı yoksa, askerlerini bir arada tutmak ve savaşa sokmak gibi bir olanağı yoktur. Hannibal’in övgüye değer girişimleri içinde bunu da saymak gerekir. Her tür ırktan oluşan kalabalık bir orduya sahip olan komutanın yabancı topraklarda savaşa gittiğinde askerler arasında iyi günde, kötü günde olsun hiçbir anlaşmazlığa tanık olmadığı gibi, askerlerinin de kendisine karşı herhangi bir ayaklanma girişiminde bulunmadıkları bilinmektedir. Bu da onun son derece sert davranmasından başka hiçbir şeyden kaynaklanmamıştır. Bu özelliği ve başka becerileri onu askerlerin gözünde saygın ve korkulan biri yapmıştır. Ürkütücü özelliği olmasaydı, öteki becerileri bu etkiyi yapmaya yetmezdi. Bunu iyi göremeyen kimi yazarlar bir yandan onun yaptıklarına hayranlık duyarken, öte yandan bu sonucu sağlayan temel nedeni eleştirmekten geri kalmazlar.
+
+5. Başka becerilerin yetmediğine örnek olarak Scipio’yu gösterebiliriz. Yalnız günümüzde değil, tarihin bütün dönemlerinde olağanüstü bir komutan olarak bilinen bu kişinin orduları İspanya’da kendisine karşı isyan ettiler. İsyanın tek nedeni imparatorun acıma duygusuydu. Merhametinden ötürü askeri disipline sığmayan geniş özgürlükler tanımıştı askerlerine. Bu tavrından ötürü senatoda Fabius Maximus tarafından eleştirilmiş ve Roma ordusunun askeri disiplinini bozduğu söylenmişti. Lokrisliler Scipio’nun küçük rütbeli bir subayı tarafından yok edildikleri zaman, Scipio bunun intikamını almadığı gibi, bu subayın küstahlığını cezalandırmadı. Tüm bunlar Scipio’nun hoşgörüsünden kaynaklanıyordu. O kadar ki senatoda üyelerden biri onu savunmak adına yaptığı bir konuşmada şöyle demişti: Kimi insanlar başkalarının yanlışlarını cezalandırmaktan çok bizzat kendileri yanlış yapmamak konusunda daha duyarlıdır. Scipio’nun bu tavrı sürseydi, kesinlikle zaman içinde yıldızı sönerdi. Ne ki senatonun denetimi altında olduğu için bu tehlikeli niteliği açığa çıkmadığı gibi ayrıca ününün yayılmasına yaradı.
+
+6. Korkulan mı, yoksa sevilen mi olmak konusuna dönecek olursak, sonuç olarak şunu söylemek isterim: Sevmek insanların istencine bağlı, korkmak hükümdarın. Erdemli bir hükümdar başkalarının değil, kendi elinde olana güvenmelidir. Dediğim gibi, yalnızca üzerine kin ve nefret çekmekten uzak durmalıdır.

@@ -2,7 +2,6 @@
 
 - [KEPUSTAKAAN (Bibliografi)](98-kepustakaan.md)
 - [GLOSARI (Daftar Istilah dan Tokoh)](99-glosari.md)
-- [Glosari (Glossary)](99-glossary.md)
 - [Bab I — Berbagai Macam Kerajaan dan Cara Menegakkannya](I-bab.md)
 - [Bab II — Kerajaan Warisan](II-bab.md)
 - [Bab III — yang baru seluruhnya, tetapi suatu penggabungan baru pada](III-bab.md)
