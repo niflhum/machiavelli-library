@@ -482,5 +482,31 @@
     "format": "整本单文件",
     "notes": "Princeton 2021 政治论文汇编（君主制/暴政/公民共和主义/佛罗伦萨三部分）",
     "added": "2026-08-21"
+  },
+  {
+    "id": "scholarship-shixiang-history-8",
+    "title": "谁是马基雅维利（思想史研究 第8辑）",
+    "title_en": "Who Is Machiavelli? (History of Thought Studies, Vol. 8)",
+    "author": "韩潮（主编）",
+    "author_en": "Han Chao (ed.)",
+    "category": "scholarship",
+    "path": "library/scholarship/shixiang-history-8/",
+    "language": "zh",
+    "format": "整本单文件",
+    "notes": "上海人民出版社 2010；马基雅维利专号：金驴记（徐卫翔译）+ 评注（韩潮）、刘玮重申施特劳斯论题、傅乾论 virtù、塔科夫/波克/麦考密克等译文；OCR 版",
+    "added": "2026-08-23"
+  },
+  {
+    "id": "scholarship-hanfei-machiavelli",
+    "title": "韩非和马基雅维利政治思想比较研究——以国家权力为视角",
+    "title_en": "A Comparative Study of Han Fei and Machiavelli: From the Perspective of State Power",
+    "author": "张昭",
+    "author_en": "Zhang Zhao",
+    "category": "scholarship",
+    "path": "library/scholarship/hanfei-machiavelli/",
+    "language": "zh",
+    "format": "整本单文件",
+    "notes": "中国社会科学出版社 2016；徐大同序；六章比较二人政治思想；OCR 版",
+    "added": "2026-08-23"
   }
 ]
